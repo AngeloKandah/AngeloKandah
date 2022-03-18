@@ -1,15 +1,9 @@
-Super Bowl
-A new arrival in Hell was brought before the devil. 
+UVA
 
-The devil told his demon to put the man to work on a rock pile with a 20 pound sledge hammer in 95 degree heat with 95% humidity. 
-At the end of the day, the devil went to see how the man was doing, only to find him smiling and singing as he pounded rocks. The man explained that the heat and hard labor were very similar to those on his beloved farm back in Pennsylvania. 
+A young West Virginian girl wanted to go to college at UVA. But her father said 'No way! You're going to By-God West Virginia Univ.' 
 
-The devil told his demon to turn up the heat to 120 degrees, with 100% humidity. 
+Well, she got her way and she went to UVA. The first semester went by, and she wrote home that she was getting married, to a man from Richmond, VA named Clarence. Her father said 'I'll be damned if my daughter is marrying a man from Richmond, you're marrying a By-God West Virginian boy,' so he sent his two sons to UVA to get their sister. 
 
-At the end of the next day, the devil again checked on the new man, and found him still happy to be sweating and straining. The man explained that it felt like the old days, when he had to clean out his silo in the middle of August on his beloved farm back in Pennsylvania. 
+In a couple of days they returned. The confused father asked 'Where is your sister?' 
+They replied 'We were almost there Dad, but we got to this overpass with a sign that said 'Clarence 13'6'' so we turned around and drove the hell out of there!'
 
-At that, the devil told his demon to lower the temperature to -20 degrees with a 40 mph wind. 
-
-At the end of the next day, the devil was confident that he would find the man miserable. But, instead the man was singing louder than ever, twirling the sledge hammer like a baton.
-
-When the devil asked him why he was so happy, the man answered, 'Cold day in hell - the Eagles must have won the Super Bowl!'
