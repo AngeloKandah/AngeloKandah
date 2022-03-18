@@ -1,5 +1,7 @@
 name: New Joke
-on: [push]
+on:
+  schedule:
+    - cron: "0 12 * * *"
 jobs:
   Update-Joke:
     runs-on: ubuntu-latest
