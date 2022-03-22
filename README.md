@@ -1,19 +1,28 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-At a New Supermarket...
+An Actual Internet Conversation
 
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Supermarket
+This is an actual chatroom conversation from a 'local Chatroom'
 
-A new supermarket opened near my house. It has an automatic water mister to keep the produce fresh. Just before it goes on, you hear the sound of distant thunder and the smell of fresh rain.
+Joe: I wonder what would happen if you had a sleep number bed,       and set it to 69?
 
-When you approach the milk cases, you hear cows mooing and experience the scent of fresh hay.
+Christy: ? huh?
 
-When you approach the egg case, you hear hens cluck and cackle, and the air is filled with the pleasing aroma of
-bacon and eggs frying.
+Mike: I dont know, but it sure sounds tasty!
 
-The veggie department features the smell of fresh buttered corn.
+Joe: You probably wouldn't understand Christy, you're too pure and innocent.
 
-Though I do have to say... I don't buy my toilet paper there.
+Christy: Maybe... sounds more like a police code or something 
+
+Mike: lol, ya, that's it. 'This is the dispatcher, what is your status'
+
+Joe: lol 'We have a 69 in progress at the overpass, Officer needs assistance'
+
+Mike: 'Move in! Move in! Officer has gone down, repeat, Officer has gone down!
+
+Joe: 'Someone better call the fire department, looks like we'll need the Jaws of Life for this one!'
+
+Christy: um.. why do i get the feeling i've started something horrible? o.O
 
