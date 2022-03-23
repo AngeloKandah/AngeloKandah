@@ -1,5 +1,4 @@
 #!/bin/bash
 
-cat wocka.json | 
-  jq '.['$(( $RANDOM % 10019 ))'] | (.title, .body)' | 
-  xargs -I '{}' sed 's/REPLACEME/{}\n/g' template.md > README.md
+jq '.['$(( $RANDOM % 10019 ))'] | (.title, .body)' wocka.json | 
+  xargs bash -c 'sed -e "s^TITLE^$0^g" -e "s^JOKE^$1^g" template.md > README.md'

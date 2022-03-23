@@ -1,28 +1,20 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-An Actual Internet Conversation
+Ice Cream
 
-Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
+A mother found her son scooping ice cream in the kitchen and she was mad.
 
-This is an actual chatroom conversation from a 'local Chatroom'
+Mom : 'Dinner is going to be ready in an hour, put that ice cream away and go play.'
 
-Joe: I wonder what would happen if you had a sleep number bed,       and set it to 69?
+Son : 'But mom, there's no one to play with.'
 
-Christy: ? huh?
+Mom : 'I'll play with you, what do you wanna play?'
 
-Mike: I dont know, but it sure sounds tasty!
+Son : 'Lets play mommy and daddy, you go upstairs and lay down on the bed.'
 
-Joe: You probably wouldn't understand Christy, you're too pure and innocent.
+The mom said 'ok', and went upstairs. The son put on his dad's fishing hat and lit up one of his dad's cigarettes. He went upstairs and opened the door.
 
-Christy: Maybe... sounds more like a police code or something 
+Mom : 'Now what do I do?'
 
-Mike: lol, ya, that's it. 'This is the dispatcher, what is your status'
-
-Joe: lol 'We have a 69 in progress at the overpass, Officer needs assistance'
-
-Mike: 'Move in! Move in! Officer has gone down, repeat, Officer has gone down!
-
-Joe: 'Someone better call the fire department, looks like we'll need the Jaws of Life for this one!'
-
-Christy: um.. why do i get the feeling i've started something horrible? o.O
+Son : 'Get your ass out of bed, you whore, and fix that kid some friggin ice cream.'
 
