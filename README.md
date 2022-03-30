@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-What Do You Call A?
+Celebrity Hog
 
-What do you call a stupid garbage can?
+Jack:  Why did you name your pig Paris Hilton?
 
-A Dumb-ster!
+Jill:  She's always trying to hog up all the attention.
 
