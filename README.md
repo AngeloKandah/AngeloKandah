@@ -1,14 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-One Liners (3)
+Church Restoration Project
 
-Thanks for being a part of my life!!! I never knew what evil was before this! 
+There was a tradesman, a painter named Jack, who was very interested in making a dollar where he could. So he often would thin down his paint to make it go a wee bit further. As it happened, he got away with this for some time.
 
-Congratulations on your promotion. Before you go, I would like to take this knife out of my back. You'll probably need it again. 
+Eventually the local church decided to do a big restoration project. Jack put in a painting bid and, because his price was so competitive, he got the job. And so he started, erecting the trestles and putting up the planks, and buying the paint and thinning it down with turpentine.
 
-Someday I hope to get married, but not to you. 
+Jack was up on the scaffolding, painting away, the job nearly done, when suddenly there was a horrendous clap of thunder. The sky opened and the rain poured down, washing the thin paint from all over the church and knocking Jack off the scaffold to land on the lawn. 
 
-Sorry things didn't work out, but I can't handle guys with boobs that are bigger than mine. 
+Jack was no fool. He knew this was a judgment from the Almighty, so he fell on his knees and cried, 'Oh, God! Forgive me! What should I do?' 
 
-Happy Birthday! You look great for your age...Almost Lifelike!
+And from the thunder, a mighty Voice spoke, 'Repaint! Repaint! And thin no more!'
 
