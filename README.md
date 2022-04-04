@@ -1,14 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Church Restoration Project
+Business As Usual in the Vatican
 
-There was a tradesman, a painter named Jack, who was very interested in making a dollar where he could. So he often would thin down his paint to make it go a wee bit further. As it happened, he got away with this for some time.
+During a Papal audience, a business man approached the Pope and made this offer: 
 
-Eventually the local church decided to do a big restoration project. Jack put in a painting bid and, because his price was so competitive, he got the job. And so he started, erecting the trestles and putting up the planks, and buying the paint and thinning it down with turpentine.
+Change the last line of the Lord's prayer from 'give us this day our daily bread' to 'give us this day our daily chicken.' and KFC will donate 10 million dollars to Catholic charities. The Pope declined. 
 
-Jack was up on the scaffolding, painting away, the job nearly done, when suddenly there was a horrendous clap of thunder. The sky opened and the rain poured down, washing the thin paint from all over the church and knocking Jack off the scaffold to land on the lawn. 
+Two weeks later the man approached the Pope again. This time with a 50 million dollar offer. Again the Pope delcined. A month later the man offers 100 million, this time the Pope accepts. 
 
-Jack was no fool. He knew this was a judgment from the Almighty, so he fell on his knees and cried, 'Oh, God! Forgive me! What should I do?' 
-
-And from the thunder, a mighty Voice spoke, 'Repaint! Repaint! And thin no more!'
+At a meeting of the Cardinals, the Pope announces his decision in the good news/bad news format. 'The good news is... that we have 100 million dollars for charities. The bad news is that we lost the Wonder Bread account!'
 
