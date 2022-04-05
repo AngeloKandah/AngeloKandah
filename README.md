@@ -1,12 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Business As Usual in the Vatican
+Refund
 
-During a Papal audience, a business man approached the Pope and made this offer: 
+It's my wife's birthday today so I went out earlier in the week and deliberately got her a present that I knew she'd hate. 
 
-Change the last line of the Lord's prayer from 'give us this day our daily bread' to 'give us this day our daily chicken.' and KFC will donate 10 million dollars to Catholic charities. The Pope declined. 
+True to form she opened it, took one look and said, 'What the fuck would I want with an xbox? 
 
-Two weeks later the man approached the Pope again. This time with a 50 million dollar offer. Again the Pope delcined. A month later the man offers 100 million, this time the Pope accepts. 
+I'm going to take this back to the shop and ask for a refund.'
 
-At a meeting of the Cardinals, the Pope announces his decision in the good news/bad news format. 'The good news is... that we have 100 million dollars for charities. The bad news is that we lost the Wonder Bread account!'
+I can't wait to see her little face when she gets arrested for looting.
 
