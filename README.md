@@ -1,12 +1,18 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Refund
+Real Men
 
-It's my wife's birthday today so I went out earlier in the week and deliberately got her a present that I knew she'd hate. 
+As I always say, 'REAL men don't shave below the neck.'
 
-True to form she opened it, took one look and said, 'What the fuck would I want with an xbox? 
+Well, unless they are a body builder, I guess you have to show it off.
 
-I'm going to take this back to the shop and ask for a refund.'
+Then again, it might be good for a boxer to be more slippery so punches have less 'stick' or whatever.
 
-I can't wait to see her little face when she gets arrested for looting.
+Yea, I guess it's the same with kick boxers.
+
+Also, I guess porn stars have their reasons.
+
+And male models....
+
+OK, I guess I meant that 'REAL men don't shave below the neck, unless they can beat me up, of course.'
 
