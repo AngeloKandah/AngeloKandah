@@ -1,18 +1,15 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Real Men
+How Long......?
 
-As I always say, 'REAL men don't shave below the neck.'
+Question:
 
-Well, unless they are a body builder, I guess you have to show it off.
+   How long is a minute?
 
-Then again, it might be good for a boxer to be more slippery so punches have less 'stick' or whatever.
 
-Yea, I guess it's the same with kick boxers.
 
-Also, I guess porn stars have their reasons.
 
-And male models....
+Answer:
 
-OK, I guess I meant that 'REAL men don't shave below the neck, unless they can beat me up, of course.'
+   That depends on which side of the                        bathroom door you are on!!
 
