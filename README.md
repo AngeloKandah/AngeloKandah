@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Did You Here?
+Daffynition 2
 
-Did you here about the giant with a nosebleed? It was all over town
+Locomotive:  A crazy reason for a crime!
 
