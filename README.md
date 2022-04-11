@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Daffynition 2
+You Might be a REDNECK If...
 
-Locomotive:  A crazy reason for a crime!
+... you have an above-ground pool and you fish in it.
 
