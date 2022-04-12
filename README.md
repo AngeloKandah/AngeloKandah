@@ -1,6 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-You Might be a REDNECK If...
+Weird Facts XII
 
-... you have an above-ground pool and you fish in it.
+Hawaii is the only U.S. state not to report a temperature of 0f* or below.
+
+Kangaroos can jump 30 ft.
+
+The first bike was called a hobbyhorse.
+
+A hummingbird weighs less than a penny.
+
+The smallest county in America is New York County, better known as Manhattan.
 
