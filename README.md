@@ -1,14 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Weird Facts XII
+Red TITLE Purple
 
-Hawaii is the only U.S. state not to report a temperature of 0f* or below.
+Two ships, one carrying lots of red paint, the other carrying lots of purple paint, crashed on a desert island.
 
-Kangaroos can jump 30 ft.
-
-The first bike was called a hobbyhorse.
-
-A hummingbird weighs less than a penny.
-
-The smallest county in America is New York County, better known as Manhattan.
+The drivers are now marooned.
 
