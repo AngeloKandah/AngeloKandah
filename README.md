@@ -1,8 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Red TITLE Purple
+Duck
 
-Two ships, one carrying lots of red paint, the other carrying lots of purple paint, crashed on a desert island.
-
-The drivers are now marooned.
+One day a duck walked into a drugstore and bought some lipstick. She walked up to the clerk and said, 'Put it on my bill!'
 
