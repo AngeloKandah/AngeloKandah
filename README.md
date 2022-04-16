@@ -1,22 +1,36 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-English As the Universal Language
+Mother's Advice to Her Daughter
 
-The European Union commissioners have announced that agreement has been reached to adopt English as the preferred language for European communications, rather than German, which was the other possibility. As part of the  negotiations, Her Majesty's Government conceded that English
-spelling had some room for improvement and has accepted a five-year phased plan for what will be known as EuroEnglish (Euro for short).
+15 PIECES OF ADVICE TO BE PASSED ON TO YOUR DAUGHTERS:
 
-In the first year, 's' will be used instead of the soft 'c'.  Sertainly, sivil servants will resieve this news with joy.  Also, the hard 'c will be replaced with 'k'. Not only will this klear up konfusion, but typewriters kan have one less letter.
+1. Don't imagine you can change a man - unless he's in diapers.
 
-There will be growing publik enthusiasm in the sekond year, when the troublesome 'ph' will be replaced by 'f'. This will make words like 'fotograf' 20 per sent shorter.  In the third year, publik akseptanse of the new spelling kan be expekted to reach the stage where more komplikated
-changes are possible.
+2. What do you do if your boyfriend walks out? You shut the door.
 
-Governments will enkorage the removal of double letters, which have always ben a deterent to akurate speling. Also, al wil agre that the horible mes of silent 'e's in the languag is disgrasful, and they would go.
+3. If they put a man on the moon - they should be able to put them all up there
 
-By the fourth year, peopl wil be reseptiv to steps such as replasing 'th' by 'z' and 'w' by ' v'.
+4. Never let your man's mind wander - it's too little to be out alone.
 
-During ze fifz year, ze unesesary 'o' kan be dropd from vords kontaining 'ou', and similar changes vud of kors be aplid to ozer kombinations of leters.
+5. Go for the younger man. You might as well, they never mature anyway.
 
-After zis fifz yer, ve vil hav a reli sensibl riten styl.  Zer vil be no mor trubls or difikultis and evrivun vil find it ezi tu understand ech ozer.
+6. Men are all the same - they just have different faces, so that you can tell them apart.
 
-Ze drem vil finali kum tru.
+7. Definition of a bachelor: a man who has missed the opportunity to make some woman miserable.
+
+8. Women don't make fools of men - most of them are the do-it-yourself types.
+
+9. Best way to get a man to do something is to suggest he is too old for it.
+
+10. Love is blind, but marriage is a real eye-opener.
+
+11. If you want a committed man, look in a mental hospital.
+
+12. The children of Israel wandered around the desert for 40 years. Even in Biblical times, men wouldn't ask for directions.
+
+13. If he asks what sort of books you're interested in, tell him checkbooks.
+
+14. Remember a sense of humor does not mean that you tell him jokes, it means that you laugh at his.
+
+15. Sadly, all men are created equal.
 
