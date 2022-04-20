@@ -1,9 +1,22 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-A Story about 4 Body's
+Magical Lamp
 
-This is a story about four people named Everybody, Somebody, Anybody, and  Nobody.
+Once upon a time, there was a man holding a magical lamp, he went to a bar where he then got a drink. The bartender sees him and asks him to chat, the man says,'I have a magical lamp rite here!' 
 
-There was an important job to be done, and Everybody was asked to do it. Everybody was sure Somebody would do it. Anybody could have done it, but  Nobody did it. Somebody got angry about that, because it was Everybody's job. Everybody thought Anybody could do it, but Nobody realized that Everybody wouldn't do it.
-It ended up that Everybody blamed Somebody when Nobody did what Anybody could have done.
+The bartender says,' Wow, does this mean I can wish for a million bucks.'
+
+The man goes, 'Yes!'
+
+Bartender goes:' I wish for a million bucks!'
+
+POOF!
+
+The air is filled with 1 million ducks. 
+
+The bartender outraged says,' Hey you cheated me!'
+
+The man goes, 'Hey it ain't that easy!'
+
+*Sorry, Did my best
 
