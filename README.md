@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Silly Monkey
+Worst Joke Ever :(
 
-What kind of monkey eats chips?
+This is the worst joke ever.
 
-A chipmunk!
+Give it no smiley face.
 
