@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Can You Tell Time?
+What Do You Call.....
 
-If you can tell time...
+What do you call 2 nuns and 3 prostitutes on a football field?
 
-Why can't you tell that I don't have time for you?
+2 Tight Ends and 3 Wide Receivers
 
