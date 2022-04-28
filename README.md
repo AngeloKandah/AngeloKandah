@@ -1,6 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Law of Motivation
+Irishman
 
-Creativity is great, but plagiarism is faster.
+What do you call an Irishman sitting in your backyard?
+
+Paddy O'Furniture
 
