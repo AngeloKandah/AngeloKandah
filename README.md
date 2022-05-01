@@ -1,10 +1,9 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Olive
+Why Eat Healthy?
 
-Knock-knock
-Who's there?
-Olive
-Olive who?
-Olive you!!!
+1.  I used to eat a lot of natural foods until I learned that most people die from natural causes.
+
+
+2.  Health nuts are going to feel stupid someday, lying in hospitals dying of nothing.
 
