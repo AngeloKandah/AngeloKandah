@@ -1,27 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-CROSS EXAMINATION
+You Lie Like A Dog!
 
-Defense Attorney: What is your age?
-Little old Woman: I am 86 years old.
-Defense Attorney: Will you tell us, in your own words, what happened to you?
-Little old Woman: There I was, sitting there in my swing on my front porch on a warm spring evening, when a young man comes creeping up on the porch and sat down beside me.
-Defense Attorney: Did you know him?
-Little old Woman: No, but he sure was friendly.
-Defense Attorney: What happened after he sat down?
-Little old Woman: He started to rub my thigh.
-Defense Attorney: Did you stop him?
-Little old Woman: No, I didn't stop him.
-Defense Attorney: Why not?
-Little old Woman: It felt good. Nobody had done that since my Abner passed away some 30 years ago.
-Defense Attorney: What happened next?
-Little old Woman: He began to rub my breasts.
-Defense Attorney: Did you stop him then?
-Little old Woman: No, I did not stop him.
-Defense Attorney: Why not?
-Little old Woman: Why, Your Honor, his rubbing made me feel all alive and excited. I haven't felt that good in years!
-Defense Attorney: What happened next?
-Little old Woman: Well, I was feeling so spicy that I just laid down and said to him...'Take me ...young man...Take me!'
-Defense Attorney: Did he take you?
-Little old Woman: He jumped up and yelled, April Fools, ...And that's when I shot the little bastard.
+A man was taking a walk around town one day and he passed a sign saying 'Talking dog for sale $5'. He thought it was a scam, but he went to see what was up anyway. 
+ When he got to the porch a dog came up to him. Deciding to be a smart aleck, he asked the dog if it could talk. 
+ The dog said, 'Yes, I can. I am the one mentioned in the sign. You can go inside and talk to my owner if you want to buy me.'
+ The man asked, 'How come you can talk?'
+ The dog answered, 'I was a secret CIA experiment. They altered my genes and I used to be a covert agent. I led to many gang busts and stopped a lot of assassination attempts. Once they learned I told my owner about the cases, they kicked me out and now I am stuck here.'
+The man was in awe and went to talk to the dog's owner Bob. 
+ He asked why the dog was so cheap since he was in the CIA and Bob said, 'Was he telling YOU that too?! He tells that to everybody. The reason he is so cheap is because I can't believe a word he says. He's a compulsive liar! The most exciting thing he has ever done is lick his own butt instead of the cat's for a change!'
 
