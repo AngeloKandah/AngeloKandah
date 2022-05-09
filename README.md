@@ -1,16 +1,24 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Getting a Job
+Series of Lightbulbs
 
-A brunette, a redhead and a blonde all apply for the same job. The manager says, 'I can only hire one of you so I'm going to ask you each a question and whoever answers it correctly gets the job.' He takes the brunette into the room and asks her, 'How many D's in Indiana Jones?' She replies, 'One.'
+1. How many Mexicans does it take to change a lightbulb?
 
-He brings the redhead into the room and asks her the same question. She thinks for a moment and says, 'One.'
+Just one.
 
-He then brings the blonde into the room and asks her the same question; 'How many D's in Indiana Jones?'
+2. How many Candains does it take to change a lightbulb?
 
-She thinks for a little. She counts on her fingers, counts on her toes, wiggles her ears, sticks out her tongue and finally comes up with, 'Thirty Six.'
+One to whack it out with his hockey stick, and one to screw in the new one.
 
-The rest of them ask her, 'How the hell did you come up with thirty six?!'
+3. How many Americans does it take to change a lightbulb?
 
-She replies with a smile on her face, 'Da da da da, da da da.' (Sing the Indiana Jones theme song)
+One to screw it in, 2 to support him, and 1 to disagree with his lightbulb approach.
+
+4. How many terrorists does it take to screw in a lightbulb?
+
+1 to crash a plane into the lightbulb, and 1 to put in the new lightbulb.
+
+5. How many soccer players does it take to screw in a lightbulb?
+
+One to take out the old one, one to attempt to kick it in to the socket, and one to buy new bulbs after the kicking attemts fail.
 
