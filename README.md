@@ -1,14 +1,20 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Personal Question
+What Children Say II
 
-A guy walked up to a beautiful young woman in a bar. 'Do you mind if I ask you a personal question?' he said to her.
+When they broke open molecules, they found they were only stuffed with atoms, but when they broke open atoms, they found them stuffed with explosions.
 
-'I don't know,' replied the beautiful young woman. 'It depends how personal it is.'
+When people run around and around in circles we say they are crazy. When planets do it we say they are orbiting.
 
-'OK,' the guy said. 'How many men have you slept with?'
+Rainbows are just to look at, not to really understand.
 
-'I'm not going to tell you that!' the woman exclaimed. 'That's my business!'
+Someday we may discover how to make magnets that can point in any direction.
 
-'Sorry,' said the guy, 'I didn't realize you made a living out of it.'
+A vibration is a motion that cannot make up its mind which way it wants to go.
+
+Many dead animals in the past changed to fossils while others preferred to be oil.
+
+Genetics explain why you look like your father, and if you don't, why you should.
+
+Vacuums are nothings. We only mention them to let them know we know they're there.
 
