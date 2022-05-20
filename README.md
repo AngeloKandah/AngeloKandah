@@ -1,20 +1,19 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-What Children Say II
+Will you remarry if I die?
 
-When they broke open molecules, they found they were only stuffed with atoms, but when they broke open atoms, they found them stuffed with explosions.
-
-When people run around and around in circles we say they are crazy. When planets do it we say they are orbiting.
-
-Rainbows are just to look at, not to really understand.
-
-Someday we may discover how to make magnets that can point in any direction.
-
-A vibration is a motion that cannot make up its mind which way it wants to go.
-
-Many dead animals in the past changed to fossils while others preferred to be oil.
-
-Genetics explain why you look like your father, and if you don't, why you should.
-
-Vacuums are nothings. We only mention them to let them know we know they're there.
+WIFE: 'What would you do if I died? Would you get married again?' 
+HUSBAND: 'Definitely not!' 
+WIFE: 'Why not - don't you like being married?' 
+HUSBAND: 'Of course I do.' 
+WIFE: 'Then why wouldn't you remarry?' 
+HUSBAND: 'Okay, I'd get married again.' 
+WIFE: 'You would? (with a hurtful look on her face).' 
+HUSBAND: (makes audible groan). 
+WIFE: 'Would you sleep with her in our bed?' 
+HUSBAND: 'Where else would we sleep?' 
+WIFE: 'Would you replace my pictures with hers?' 
+HUSBAND: 'That would seem like the proper thing to do.' 
+WIFE: 'Would she use my golf clubs?' 
+HUSBAND: 'No, she's left-handed.'
 
