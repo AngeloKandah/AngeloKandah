@@ -1,19 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Will you remarry if I die?
+Monkey Manners
 
-WIFE: 'What would you do if I died? Would you get married again?' 
-HUSBAND: 'Definitely not!' 
-WIFE: 'Why not - don't you like being married?' 
-HUSBAND: 'Of course I do.' 
-WIFE: 'Then why wouldn't you remarry?' 
-HUSBAND: 'Okay, I'd get married again.' 
-WIFE: 'You would? (with a hurtful look on her face).' 
-HUSBAND: (makes audible groan). 
-WIFE: 'Would you sleep with her in our bed?' 
-HUSBAND: 'Where else would we sleep?' 
-WIFE: 'Would you replace my pictures with hers?' 
-HUSBAND: 'That would seem like the proper thing to do.' 
-WIFE: 'Would she use my golf clubs?' 
-HUSBAND: 'No, she's left-handed.'
+Several years ago, Baltimore Zoo decided to encamp colonies of tiny Green Monkeys and large Drill Baboons together on an island, the theory being that the primates would stay put because neither could swim.
+
+But the morning after the exhibit opened, zoo officials found little Green Monkeys off the island and wandering around the zoo. The next two mornings, it was the same thing. Finally a vigilant keeper discovered the problem stemmed less from cage design than monkey manners. The baboons, unwilling to share food, were grabbing the Green Monkeys by their tails and hurling them like Olympic hammer throwers off the island during suppertime.
+
+The monkeys were no worse for their daily shuttle, but the colonies were separated anyway. The island is now a penguin reserve.
+
+Swing, swing, swing, *toss* Wheeeeeee! :)
 
