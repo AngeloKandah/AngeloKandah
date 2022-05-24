@@ -1,7 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Geese and Ducks
+The Pan-cakes
 
-Q: What can a goose do, a duck can't, and a lawyer should?
-A: Stick his bill up his rear.
+The laziest man I ever met put popcorn in his pancakes so they would turn over by themselves.
+
+- W. C. Fields.
 
