@@ -1,28 +1,18 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Little Johnny on Sex Ed
+Assertive Husband
 
-Little Johnny walked into class one day and sat down. He realized that someone new was teaching the class today, It was Coach Bob, the gym teacher.
+A man was tired of being bossed around by his wife, so he went to see a psychiatrist. 
 
-Coach Bob started the class by saying, 'Okay you little one's are never too young to learn about s-e-x, uh ummm.'
+The psychiatrist said he needed to build his self-esteem and so gave him a book on assertiveness, which he read on the way home. He finished the book by the time he reached his house. 
 
-While every other kid in the class is giggling. Little Johnny looks really intent.
+The man stormed into the house and walked up to his wife. 
 
-Coach Bob then asks, ' Well, what do any of you kids already know about sex.'
+Pointing a finger in her face, he said, 'From now on, I want you to know that - I - am the man of this house, and my word is law! 
 
-Little Shirley raised her hand, 'One time my puppy had a baby.'
+'I want you to prepare me a gourmet meal tonight, and when I'm finished eating my meal, I expect a sumptuous dessert afterward. 
 
-'Good ' said Coach Bob
+'Then, after dinner, you're going to draw me my bath so I can relax. And, when I'm finished with my bath, guess who's going to dress me and comb my hair?' 
 
-Then Little Chuckie raised his hand and said, 'Well my mom gave me a little sister.'
-
-'Good, good.' said Coach Bob
-
-The Little Johnny raised his hand and Coach Bob's heart skipped a beat. He said 'Yes Little Johnny.'
-
-'Well,' said Little Johnny, 'one time at my grandpa's house I was watching an old western starring the Lone Ranger, and he fought off one hundred Indians.'
-
-'Oh Yeah,' said Coach Bob really relieved, 'what does that have to do with sex ed.'
-
-'That'll teach those Indians to screw with the Lone Ranger.'
+His wife replied, 'The funeral director.'
 
