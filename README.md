@@ -1,18 +1,19 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Assertive Husband
+Be Sure That There Is a Problem
 
-A man was tired of being bossed around by his wife, so he went to see a psychiatrist. 
+BE SURE THAT THERE IS A PROBLEM.
 
-The psychiatrist said he needed to build his self-esteem and so gave him a book on assertiveness, which he read on the way home. He finished the book by the time he reached his house. 
+One fine day, a bus driver went to the bus garage, started his bus, and drove off along the route. No problems for the first few stops-a few people got on, a few got off, and things went generally well. 
 
-The man stormed into the house and walked up to his wife. 
+At the next stop, however, a big hulk of a guy got on. Six feet eight, built like a wrestler, arms hanging down to the ground. He glared at the driver and said, 'Big John doesn't pay!' and sat down at the back. Did I mention that the driver was five feet three, thin, and basically meek? Well, he was. Naturally, he didn't argue with Big John, but he wasn't happy about it.
 
-Pointing a finger in her face, he said, 'From now on, I want you to know that - I - am the man of this house, and my word is law! 
+The next day the same thing happened-Big John got on again, made a showoff refusing to pay, and sat down. And the next day, and the one after that, and so forth. This grated on the bus driver, who started losing sleepo ver the way Big John was taking advantage of him.
 
-'I want you to prepare me a gourmet meal tonight, and when I'm finished eating my meal, I expect a sumptuous dessert afterward. 
+Finally he could stand it no longer. He signed up for body building courses, karate, judo, and all that good stuff. By the end of the summer, he had become quite strong JOKE invested a lot of money as well ; what's more, he felt really good about himself.
 
-'Then, after dinner, you're going to draw me my bath so I can relax. And, when I'm finished with my bath, guess who's going to dress me and comb my hair?' 
+So on the next Monday, when Big John once again got on the bus and said,' Big John doesn't pay!,' the driver stood up, glared back at the passenger, and screamed, 'And why not?'  With a surprised look on his face, Big John replied, 
+'Big John has a bus pass !'
 
-His wife replied, 'The funeral director.'
+Moral of the story:--  Be sure there is a problem in the first place before working hard to solve one
 
