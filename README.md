@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-To Church
+Tempus Fugit
 
-Yo Momma so poor, she wore her McDonalds uniform to church.
+One of the greatest labor-saving inventions today is tomorrow.
 
