@@ -1,13 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Argument
+Tornado Disaster
 
-Dick and Jane were arguing over the breakfast table.
+President Bush toured parts of Missouri that were devastated by a recent tornado.
 
-'Oh you're so stupid!'
-shouted Dick.
-
-'Dick!' said their father, 'That is enough! Now say you're sorry!'
-
-'Okay,' said Dick, 'I am sorry you're stupid.'
+There was one awkward moment, when the President looked at the tornado damage and said, 'Don't worry, we're going to get whoever did this.'
 
