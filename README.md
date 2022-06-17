@@ -1,16 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Too Tired
+Followed Some Tracks
 
-Carol's husband, Arnie, was a male chauvinist. Even though they both worked full-time, he never helped around the house. Housework was a woman's work!
+One time there were three guys sitting at a bar. One was stupid, one was pretty smart, and the third was very intelligent. Well, they were sitting at the bar and the pretty smart one says that they should go on a deer hunt. 
 
-One evening Carol arrived home from work to find the children bathed, one load of clothes in the washer and another in the dryer, dinner on the stove, and the table set. She was astonished.
+'I'll go first,' says the smart one. Later the man comes back with a big deer. The two other men ask how he got such a deer. 'I just followed some tracks, kept on going, then BAM! I found my self a deer!' says the man. So the pretty smart one goes after that. He comes back later and the two men still at the bar asked how he got the deer. He replies the same way the smart man replied. Next goes the stupid one. About thirty minutes passed and he came back looking beat up. The men at the bar rushed over and started to question him how he got his injuries.
 
-It turns out that Arnie had read an article that said wives who worked full-time and had to do their own housework were too tired to have sex. The night went well and the next day she told her office friends all about it.
-
-'We had a great dinner. Arnie even cleaned up. He helped the kids do their homework, folded all the laundry and put everything away. I really enjoyed the evening.'
- 
-'But what about afterward?' asked her friends.
-
-'Oh, that was perfect too. Arnie was too tired!'
+'Well,' he says, 'I followed some tracks, and I looked up and there was this big light. It came rushing toward me, with steam puffing out. Then, before I knew it... BAM!'
 
