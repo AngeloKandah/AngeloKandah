@@ -1,33 +1,16 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Bill Clinton
+STDs are deadly!
 
-One Friday morning, a teacher came up with a novel 
-way to motivate her class. She told them that she 
-would read a quote and the first student to correctly 
-identify who said it would receive the rest of the 
-day off. 
+Bill walked into his favorite dive bar, took his regular stool, looked around, and asked Louie, the bartender, 'Where's Beverly, the waitress?'
 
-She started with 'This was England's finest hour.' 
-Little Suzy instantly jumped up and said, ' Winston 
-Churchill.' 
+'She's dead,' replied the bartender. 
 
-'Congratulations,' said the teacher 'you may go 
-home.' 
+'Dead?' asked Bill. 
 
-The teacher then said, 'Ask not what your country can 
-do for you.' 
-Before she could finish this quote, another young 
-lady belts out, 'John F. Kennedy'. 
+'She died from herpes,' said the bartender. 
 
-'Very good' says the teacher, 'you may go.' 
+Bill replied, 'You don't die from herpes.' 
 
-Irritated that he has missed two golden 
-opportunities, Little Johnny said, 'I wish those 
-girls would just shut up.' 
-
-Upon overhearing this comment, the outraged teacher 
-demanded to know who said it. Johnny instantly rose 
-to his feet and said, 'Bill Clinton. I'll see you 
-Monday.'
+'You do if you give it to Big Louie!' said the bartender.
 
