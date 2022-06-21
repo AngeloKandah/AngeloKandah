@@ -1,16 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-STDs are deadly!
+Doctor's Orders
 
-Bill walked into his favorite dive bar, took his regular stool, looked around, and asked Louie, the bartender, 'Where's Beverly, the waitress?'
+A distraught patient phoned her doctor's office. 'Is it true,' the woman wanted to know, 'that the medication you prescribed has to be taken for the rest of my life?'
 
-'She's dead,' replied the bartender. 
+'Yes, I'm afraid so,' the doctor told her.
 
-'Dead?' asked Bill. 
-
-'She died from herpes,' said the bartender. 
-
-Bill replied, 'You don't die from herpes.' 
-
-'You do if you give it to Big Louie!' said the bartender.
+There was a moment of silence before the woman continued, 'I'm wondering, then, just how serious my condition is, because this prescription is marked 'NO REFILLS.''
 
