@@ -1,8 +1,9 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Jesus
+Kids and Kittens
 
-Why was Jesus not born in France?
+A three-year-old boy went with his dad to see a litter of kittens. On returning home, he breathlessly informed his mother, 'There were two boy kittens and two girl kittens.' 
+'How did you know?' his mother asked. 
 
-Because they couldn't find three wise men or a virgin.
+Daddy picked them up and looked underneath, he replied, 'I think it's printed on the bottom.'
 
