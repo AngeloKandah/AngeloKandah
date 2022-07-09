@@ -1,6 +1,16 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Video Store
+What Were You Thinking?
 
-Janet's son, Trevor, lived in Georgia with his mom. Over the summer, Trevor went to California. On his way back to home, he decided to stop at an 'adult video' store. The manager asked if he had an account. He admitted he didn't, and asked to start one. The manager asked for his phone number and he gave it to them. The manager then replied, 'It says that the account is under the name of Janet.'
+What starts with a p and ends with the letters orn?
+
+Popcorn! What were you thinking?
+
+What starts with a f and ends with the letters uck?
+
+Firetruck! What were you thinking?
+
+What starts with a b and ends with the letters itch?
+
+Bewitch! What were you thinking?
 
