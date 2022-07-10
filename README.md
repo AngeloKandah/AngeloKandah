@@ -1,16 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-What Were You Thinking?
+Father's Day
 
-What starts with a p and ends with the letters orn?
+It was Father's Day, and Little Billy's mom told him to tell his dad to just lay around, watch TV, and do nothing productive.
 
-Popcorn! What were you thinking?
+So Little Billy went into the family room where he found his dad watching TV. Little Billy said, 'Dad, it's Father's Day, so mom and me think that you should just lay around, watch TV, and do nothing productive.'  His dad looked up from the TV and smiled, then went back to watching his show.
 
-What starts with a f and ends with the letters uck?
-
-Firetruck! What were you thinking?
-
-What starts with a b and ends with the letters itch?
-
-Bewitch! What were you thinking?
+Little Billy paused a moment and said, 'You know, just like you usually do...'
 
