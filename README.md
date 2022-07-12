@@ -1,12 +1,9 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Kept in the Dark
+Psyched Up
 
-Judge: Is there any reason you could not serve as a juror in this case?
+In a class on abnormal psychology, the instructor was about to introduce the subject of manic depression. 
+The instructor asked, 'How would you diagnose a patient who walks back and forth, screaming at the top of his lungs one minute, then sits in a chair weeping uncontrollably the next?' 
 
-Juror: I don't want to be away from my job that long.
-
-Judge: Can't they do without you at work?
-
-Juror: Yes, but I don't want them to know it.
+A young man in the rear raised his hand and suggested earnestly, 'A basketball coach?'
 
