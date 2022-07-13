@@ -1,9 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Psyched Up
+It's True!!
 
-In a class on abnormal psychology, the instructor was about to introduce the subject of manic depression. 
-The instructor asked, 'How would you diagnose a patient who walks back and forth, screaming at the top of his lungs one minute, then sits in a chair weeping uncontrollably the next?' 
-
-A young man in the rear raised his hand and suggested earnestly, 'A basketball coach?'
+One bright day in the middle of the night, 
+2 dead boys got up to fight
+back to back they faced each other,
+drew their knives,
+and shot each other.
+a deaf policeman heard the noise, 
+and came to kill those two dead boys.
+if you don't believe my stories true,
+ask the blind guy, he saw it to!
 
