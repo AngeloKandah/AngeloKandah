@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Village Idiot
+Politians are Like...
 
-My home town is so small, we have part-time village idiot.
+Politians are like constipated people-they're full of shit.
 
