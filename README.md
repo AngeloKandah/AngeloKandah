@@ -1,25 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Angels Explained By Children I
+Entry Fee
 
-I only know the names of two angels. Hark and Harold.
-Gregory, 5
-
-Everybody's got it all wrong. Angels don't wear halos any more. I forget why, but scientists are working on it.
-Olive, 9
-
-It's not easy to become an angel! First, you die. Then you go to heaven, and then there's still the flight training to go through. And then you got to agree to wear those angel clothes.
-Matthew, 9
-
-Angels work for God and watch over kids when God has to go do something else.
-Mitchell, 7
-
-My guardian angel helps me with math, but he's not much good for science.
-Henry, 8
-
-Angels don't eat, but they drink milk from Holy Cows!
-Jack, 6
-
-Angels talk all the way while they're flying you up to heaven. The main subject is where you went wrong before you got dead.
-Daniel, 9
+A little girl and her father decided to go to church, because her father wanted to introduce her to the Christian World. As they sat down, a collection plate begins to be passed around. As the plate came to the girl's father, he searches his pockets for money. Then his daughter whispers in his ear, 'Don't worry Daddy, I'm already free and covered.... I'm under 5.'
 
