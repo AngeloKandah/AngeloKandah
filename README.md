@@ -1,6 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Entry Fee
+Heart Attack
 
-A little girl and her father decided to go to church, because her father wanted to introduce her to the Christian World. As they sat down, a collection plate begins to be passed around. As the plate came to the girl's father, he searches his pockets for money. Then his daughter whispers in his ear, 'Don't worry Daddy, I'm already free and covered.... I'm under 5.'
+Because an increasing number of people are having heart attacks while gambling, the big, high-class casinos are now equipped with sophisticated defibrillators. They are computer-controlled to deliver the exact electric shock needed to revive a heart attack victim. That is, if you're at a big, high-class casino. 
+
+At the cheaper casinos downtown, they just drag you across the carpet and touch your finger to the doorknob.
 
