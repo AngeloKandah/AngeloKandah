@@ -1,10 +1,13 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Turkey Football
+The Final Wish
 
-A pro football team had just finished their daily practice session when a large turkey came strutting onto the field. While the players gazed in amazement, the turkey walked up to the head coach and demanded a tryout.
+One day, Farrah Fawcett died and went to heaven. At the gates, St.Peter greeted her.
 
-Everyone stared in silence as the turkey caught pass after pass and ran right through the defensive line. When the turkey returned to the sidelines, the coach shouted, 'You're terrific!!!
+'Hello, and welcome. You have lived a life full of prosperity and love. You have given millions around the world entertainment with your acting. Now I will provide you with one wish for the Earth before you enter Heaven. What is it?'
 
-Sign up for the season, and I'll see to it that you get a huge bonus.' 'Forget the bonus,' the turkey said, 'All I want to know is, does the season go past Thanksgiving Day?'
+Farrah thought for a minute, but answered, 'I would like all the children in the world to be safe.' 
+
+
+The next day, Michael Jackson died.
 
