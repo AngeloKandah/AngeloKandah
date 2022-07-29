@@ -1,25 +1,37 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-How to Talk Native Southern II
+Halloween Favourites
 
-Far - What get the brandin arn hot.
-Furred - He got furred from his job.
-Flar - A rose is a purdy flar.
-Frash - Them aigs ain't frash.
-Furiners - All non-'bamans.
-Further - Hits ten miles further to town.
-Grain - She was grain with envy.
-Hail - Where bad folks go.
-Hep - Poor George, he can't hep it, he was born with a silver spoon in his mouth.
-Hern - It aint hern, it's his'n.
-Hilbilly - People in the next county.
-Hollar â What's between the hills.
-Hard - Got a brend new hard.
-Tar - His core blew a tar.
-Laymun - A sour fruit.
-Laig - Most folks have two of them.
-Lather - What you climb up.
-Liberry - Where you go to check out books for larnin. 
-Mailk - what you get from cyows.
-Mere - What you see yourself in.
+What haunts the closets of a haunted house?
+The SOULS of shoes!
+
+What's a ghosts favourite dessert?
+I-scream!
+
+What was the ghosts favorite baseball team?
+The BOO Jays! 
+
+What room is a ghost not allowed to go inside?
+The Living room 
+
+Why didn't the vampire have fun on his vacation?
+He SUCKED all the fun out of it!
+
+If a snow man and a vampire got married and they had a baby what would the baby be?
+A Snowvam!
+
+Where do monsters love to visit in New York?
+The Vampire State Building. 
+
+Why did the vampire's friend break up with him?
+Because he was a pain in the neck! 
+
+Why do witches use brooms to fly on? 
+Because vacuum cleaners are too heavy!
+
+What kind of street do zombies like best? 
+Dead ends! 
+
+What is a vampire's favourite mode of transportation?
+A blood vessel!
 
