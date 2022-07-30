@@ -1,37 +1,19 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Halloween Favourites
+E-mails
 
-What haunts the closets of a haunted house?
-The SOULS of shoes!
+It's wise to remember how easily this wonderful technology can be misused, sometimes unintentionally, with serious consequences.
 
-What's a ghosts favourite dessert?
-I-scream!
+Consider the case of the Illinois man who left the snow-filled streets of Chicago for a vacation in Florida. His wife was on a business trip and was planning to meet him there the next day. When he reached his hotel, he decided to send his wife a quick e-mail. Unable to find the scrap of paper on which he had written her e-mail address, he did his best to type it in from memory.
 
-What was the ghosts favorite baseball team?
-The BOO Jays! 
+Unfortunately, he missed one letter, and his note was directed instead to an elderly preacher's wife, whose husband had passed away only the day before. When the grieving widow checked her e-mail, she took one look at the monitor, let out a piercing
+scream, and fell to the floor in a dead faint.
 
-What room is a ghost not allowed to go inside?
-The Living room 
+At the sound, her family rushed into the room and saw this note on the screen:
 
-Why didn't the vampire have fun on his vacation?
-He SUCKED all the fun out of it!
+Dearest Wife,
 
-If a snow man and a vampire got married and they had a baby what would the baby be?
-A Snowvam!
+Just got checked in. Everything prepared for your arrival tomorrow.
 
-Where do monsters love to visit in New York?
-The Vampire State Building. 
-
-Why did the vampire's friend break up with him?
-Because he was a pain in the neck! 
-
-Why do witches use brooms to fly on? 
-Because vacuum cleaners are too heavy!
-
-What kind of street do zombies like best? 
-Dead ends! 
-
-What is a vampire's favourite mode of transportation?
-A blood vessel!
+PS. Sure is hot down here.
 
