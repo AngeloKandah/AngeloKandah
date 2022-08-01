@@ -1,14 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The New V P
+The Coin Toss
 
-Tom was so excited about his promotion to Vice President of the company he worked for and kept bragging about it to his wife for weeks on end. 
+A U.S. Mint spokesperson announced the plans for a new fifty-cent piece that was being issued in the honor of two great American patriots. On one side of the coin would be Theodore Roosevelt, on the other, Nathan Hale. When questioned by a reporter why two people were going to appear on the same coin, the spokesperson replied, 'These two men were selected to simplify life for a vast majority of Americans.'
 
-Finally she couldn't take it any longer, and told him, 'Listen, it means nothing, they even have a Vice President of peas at the grocery store!' 
+The reporter then asked, 'Could you explain how this would simplify life for Americans?'
 
-'Really?' he said. Not sure if this was true or not, Tom decided to call the grocery store. 
-
-A clerk answers and Tom says, 'Can I please talk to the Vice President of peas?' 
-
-The clerk replies, 'Canned or frozen?'
+The official responded, 'Certainly, I'd be happy to. Now, when they toss a coin, they can simply call Ted's or Hale's.'
 
