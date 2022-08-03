@@ -1,8 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Sad News
+Isabel
 
-The other day, I heard that a good friend of mine was outside during a thunderstorm and got struck by lightning.
-
-I was a bit shocked, but not as much as he was.
+Knock, knock.
+Who's there?
+Isabel.
+Isabel who?
+Is-a-bel ringing? I thought I heard one.
 
