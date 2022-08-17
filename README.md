@@ -1,56 +1,40 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Things To Do In An Elevator
+Dead Horse Management
 
-1) When there's only one other person in the elvator, tap them on the shoulder and then pretend it wasn't you.
+The tribal wisdom of the Dakota Indians, passed on from one
+generation to the next, says that when you discover you are riding a dead horse, the best strategy is to dismount.
 
-2) Push the buttons and pretend they give you a shock. Smile, and go back for more.
+However, in modern business, because of the heavy investment factors to be taken into consideration, often other strategies have to be tried with dead horses, including the following:
 
-3) Ask if you can push the button for other people, but push the wrong ones.
+1. Buying a stronger whip.
 
-4) Call the Psychic Hotline from your cell phone and ask if they know what floor you're on.
+2. Changing riders.
 
-5) Hold the doors open and say you're waiting for a friend. After a while, let the doors close, and say, 'Hi Greg. How's your day been?'
+3. Threatening the horse with termination.
 
-6) Drop a pen and wait until someone goes to pick it up, then scream, 'That's mine!'
+4. Appointing a committee to study the horse.
 
-7) Bring a camera and take pictures of everyone in the elevator.
+5. Arranging to visit other sites to see how they ride dead horses.
 
-8) Move your desk into the elevator and whenever anyone gets on, ask if they have an appointment.
+6. Lowering the standards so that dead horses can be included.
 
-9) Lay down the twister mat and ask people if they would like to play.
+7. Reclassifying the dead horse as living-impaired.
 
-10) Leave a box in the corner, and when someone gets on, ask them if they can hear ticking.
+8. Change the form so that it reads: 'This horse is not dead.'
 
-11) Pretend you are a flight attendant and review emergency procedures and exits with the passengers.
+9. Hire outside contractors to ride the dead horse.
 
-12) Ask, 'Did you feel that?'
+10. Harness several dead horses together for increased speed.
 
-13) Stand really close to someone, sniffing them occasionally.
+11. Donate the dead horse to a recognized charity, thereby
+deducting its full original cost.
 
-14) When the doors close, announce to the others, 'It's okay, don't panic, they open again!'
+12. Provide additional funding to increase the horse's performance.
 
-15) Swat at flies that don't exist.
+13. Do a time management study to see if lighter riders would improve productivity.
 
-16) Tell people that you can see their aura.
+14. Declare that a dead horse has lower overhead and therefore performs better.
 
-17) Call out, 'Group Hug!' and then enforce it.
-
-18) Grimace painfully while smacking your forehead and muttering, 'Shut up, all of you, just shut up!'
-
-19) Crack open your briefcase or purse, and while peering inside, ask, 'Got enough air in there?'
-
-20) Stand silently and motionless in the corner, facing the wall, without getting off.
-
-21) Stare at another passenger for a while, then announce in horror, 'You're one of THEM!' and back away slowly.
-
-22) Wear a puppet on your hand and use it to talk to the other passengers.
-
-23) Listen to the elevator walls with your stethoscope.
-
-24) Make explosion noises when anyone presses a button.
-
-25) Stare, grinning at another passenger for a while, then announce, 'I have new socks on.'
-
-26) Draw a little square on the floor with chalk and announce to the other passnegers, 'This is MY personal space!'
+15. Promote the dead horse to a supervisory position.
 
