@@ -1,40 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Dead Horse Management
+Mother-in-law
 
-The tribal wisdom of the Dakota Indians, passed on from one
-generation to the next, says that when you discover you are riding a dead horse, the best strategy is to dismount.
+Bill went on a vacation to the Middle East with most of his family including his mother-in-law. During their vacation and while they were visiting Jerusalem, Bill's mother-in-law died. With the death certificate in hand, Bill went to the American Consulate Office to make arrangements to send the body back to the States for proper burial.
 
-However, in modern business, because of the heavy investment factors to be taken into consideration, often other strategies have to be tried with dead horses, including the following:
+The Consul after hearing of the death of the mother-in-law told Bill, 'My friend, the cost of sending of a body back to the States for burial is very very expensive. It could cost as much as $5,000.00 dollars.'
 
-1. Buying a stronger whip.
+The Consul continues, in most cases the person responsible for the remains, normally decides to bury the body here. This would only cost $150.00 dollars. Bill thinks for some time and answers the Consul, 'I don't care how much it will cost to send the body back; that's what I want to do.'
 
-2. Changing riders.
+The Consul after hearing this says, 'You must have loved your mother-in-law very much considering the difference in price from $5.000.00 and $150.00 dollars.'
 
-3. Threatening the horse with termination.
-
-4. Appointing a committee to study the horse.
-
-5. Arranging to visit other sites to see how they ride dead horses.
-
-6. Lowering the standards so that dead horses can be included.
-
-7. Reclassifying the dead horse as living-impaired.
-
-8. Change the form so that it reads: 'This horse is not dead.'
-
-9. Hire outside contractors to ride the dead horse.
-
-10. Harness several dead horses together for increased speed.
-
-11. Donate the dead horse to a recognized charity, thereby
-deducting its full original cost.
-
-12. Provide additional funding to increase the horse's performance.
-
-13. Do a time management study to see if lighter riders would improve productivity.
-
-14. Declare that a dead horse has lower overhead and therefore performs better.
-
-15. Promote the dead horse to a supervisory position.
+'No, it's not that at all,' says Bill. 'You see, I know of a case many years ago of a person who was buried here in Jerusalem and on the third day He was resurrected. I don't want to take that chance!'
 
