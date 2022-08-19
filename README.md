@@ -1,14 +1,16 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Mother-in-law
+Too Tired
 
-Bill went on a vacation to the Middle East with most of his family including his mother-in-law. During their vacation and while they were visiting Jerusalem, Bill's mother-in-law died. With the death certificate in hand, Bill went to the American Consulate Office to make arrangements to send the body back to the States for proper burial.
+Carol's husband, Arnie, was a male chauvinist. Even though they both worked full-time, he never helped around the house. Housework was a woman's work!
 
-The Consul after hearing of the death of the mother-in-law told Bill, 'My friend, the cost of sending of a body back to the States for burial is very very expensive. It could cost as much as $5,000.00 dollars.'
+One evening Carol arrived home from work to find the children bathed, one load of clothes in the washer and another in the dryer, dinner on the stove, and the table set. She was astonished.
 
-The Consul continues, in most cases the person responsible for the remains, normally decides to bury the body here. This would only cost $150.00 dollars. Bill thinks for some time and answers the Consul, 'I don't care how much it will cost to send the body back; that's what I want to do.'
+It turns out that Arnie had read an article that said wives who worked full-time and had to do their own housework were too tired to have sex. The night went well and the next day she told her office friends all about it.
 
-The Consul after hearing this says, 'You must have loved your mother-in-law very much considering the difference in price from $5.000.00 and $150.00 dollars.'
+'We had a great dinner. Arnie even cleaned up. He helped the kids do their homework, folded all the laundry and put everything away. I really enjoyed the evening.'
+ 
+'But what about afterward?' asked her friends.
 
-'No, it's not that at all,' says Bill. 'You see, I know of a case many years ago of a person who was buried here in Jerusalem and on the third day He was resurrected. I don't want to take that chance!'
+'Oh, that was perfect too. Arnie was too tired!'
 
