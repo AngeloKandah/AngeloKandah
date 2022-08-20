@@ -1,16 +1,22 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Too Tired
+Male Answers
 
-Carol's husband, Arnie, was a male chauvinist. Even though they both worked full-time, he never helped around the house. Housework was a woman's work!
+Q: What's the best way to kill a man? 
+A: Put a pretty blonde and a six-pack in front of him. Then tell him to pick only one. 
 
-One evening Carol arrived home from work to find the children bathed, one load of clothes in the washer and another in the dryer, dinner on the stove, and the table set. She was astonished.
+Q: Why do men whistle when they're sitting on the toilet? 
+A: Because it helps them remember which end they need to wipe. 
 
-It turns out that Arnie had read an article that said wives who worked full-time and had to do their own housework were too tired to have sex. The night went well and the next day she told her office friends all about it.
+Q: What is the difference between men and women:.... 
+A: A woman wants one man to satisfy her every need...A man wants every woman to satisfy his one need. 
 
-'We had a great dinner. Arnie even cleaned up. He helped the kids do their homework, folded all the laundry and put everything away. I really enjoyed the evening.'
- 
-'But what about afterward?' asked her friends.
+Q. Why does it take 1 million sperm to fertilize 1 egg ? 
+A. They don't stop for directions. 
 
-'Oh, that was perfect too. Arnie was too tired!'
+Q: How does a man keep his youth? 
+A: By giving HER money, furs and diamonds. 
+
+Q: How do you keep your husband from reading your e-mail? 
+A: Rename the mail folder to 'instruction manuals'
 
