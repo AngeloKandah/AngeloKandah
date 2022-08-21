@@ -1,22 +1,27 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Male Answers
+How to Prepare for a Mammogram
 
-Q: What's the best way to kill a man? 
-A: Put a pretty blonde and a six-pack in front of him. Then tell him to pick only one. 
+Many women are afraid of their first mammogram, but there is no need to worry.  By taking a few minutes each day for a week preceding the exam and doing the following exercises, you will be totally
+prepared for the test.
 
-Q: Why do men whistle when they're sitting on the toilet? 
-A: Because it helps them remember which end they need to wipe. 
+And best of all, you can do these simple exercises right in your home.
 
-Q: What is the difference between men and women:.... 
-A: A woman wants one man to satisfy her every need...A man wants every woman to satisfy his one need. 
+EXERCISE ONE:
 
-Q. Why does it take 1 million sperm to fertilize 1 egg ? 
-A. They don't stop for directions. 
+Open your refrigerator door and insert one breast in door. Shut as hard as possible and lean on the door for good measure. Hold
+that position for five seconds. Repeat again in case the first time wasn't effective enough.
 
-Q: How does a man keep his youth? 
-A: By giving HER money, furs and diamonds. 
+EXERCISE TWO:
 
-Q: How do you keep your husband from reading your e-mail? 
-A: Rename the mail folder to 'instruction manuals'
+Visit your garage at 3 AM when the temperature of the cement floor is just perfect. Take off all your clothes and lie comfortably on the floor with one breast wedged under the rear tire of the car. Ask a friend to slowly back the car up until your breast is sufficiently flattened and chilled.  Turn over and repeat with the other breast.
+
+EXERCISE THREE:
+
+Freeze two metal bookends over night. Strip to the waist. Invite a stranger into the room.
+Press the bookends against one of your breasts. Smash the bookends 
+together as hard as you can. Set up an appointment with the stranger to
+meet next year and do it again.
+
+YOU ARE NOW TOTALLY PREPARED!
 
