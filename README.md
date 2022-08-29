@@ -1,7 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Blonde Nurse
+Privacy Policy
 
-Q: Why does a blonde nurse carry around a red pen? 
-A: To draw blood.
+We are rated with RSAC i, SafeSurf TM Rated.
 
