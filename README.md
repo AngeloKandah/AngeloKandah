@@ -1,10 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Hickory, Dickory Dock...
+Spoon
 
-Hickory, Dickory Dock
-Three mice ran up the clock
-The clock struck one...
+A blonde says to a brunette, ''Excuse me, but each time I sip my coffee, my eye seems to hurt.''
 
-The rest got away with minor injuries
+The brunette says, ''Well maybe you should take the spoon out of the cup.''
 
