@@ -1,8 +1,11 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Spoon
+Yard Sales
 
-A blonde says to a brunette, ''Excuse me, but each time I sip my coffee, my eye seems to hurt.''
+Why do alot of people go to black peoples yard sales?
 
-The brunette says, ''Well maybe you should take the spoon out of the cup.''
+
+
+
+A:To get there stuff back.
 
