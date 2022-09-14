@@ -1,22 +1,17 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-They are So Stupid
+WheelTITLEDeals
 
-She sent me a fax with a stamp on it. 
+A beautiful blonde goes into a bar and sits down next to a guy that's so homely looking, he hasn't had a date in over a year, also, he's sooooo dumb that one night he slept with a ruler next to his head to see how long he slept.
 
--She tripped over the cordless phone. 
+He figures that he has absolutely no chance in the world to score a date with this ravishing buxom blonde, when suddenly she 
+strikes up a conversation with him!  Soon they become rather chummy. It starts to get late and the bartender calls out last drink for alcohol.  The blonde leans over to the guy and says,
+'Let's have this last drink at my apartment.'
 
--She put lipstick on her forehead because she wanted to make up her mind.
+Taken back by her request, and trembling, the guy finally utters
+the word, 'Okay.'
 
--She took a ruler to bed to see how long she slept.
+They get up from the bar stool arm and arm headed for the door.  The blonde stops him and says, 'Before we go back to my apartment there's one thing I have to tell you, I'm on my menstrual cycle.'
 
--At the bottom of the application where is says 'Sign here', she wrote Sagittarius.
-
--If she spoke her mind, she'd be speechless.
-
--When she heard that 90% of all crimes were around the home, she moved. 
-
--She got an AM radio. It took her 9 months to figure out that she could use it at night. 
-
--She stood staring at the frozen orange juice because it said 'Concentrate'.
+He says, ...'That's ok, I'll follow you in my Honda.'
 
