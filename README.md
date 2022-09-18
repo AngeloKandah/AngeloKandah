@@ -1,8 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Mother and Baby Match
+Quick Wit
 
-What did the mother match say to the baby match?
+While reading a newspaper, Morty came across an article about a beautiful actress marrying a football player who was not noted for his IQ.
 
-Don't scratch your head.
+'I'll never understand,' he said to his wife, 'Why do the biggest jerks get the most attractive wives.'
+
+His wife replied, 'Why, thank you, dear.'
 
