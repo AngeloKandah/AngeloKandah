@@ -1,10 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Quick Wit
+Welfare Blonde
 
-While reading a newspaper, Morty came across an article about a beautiful actress marrying a football player who was not noted for his IQ.
+Why did the blonde call the welfare office?
 
-'I'll never understand,' he said to his wife, 'Why do the biggest jerks get the most attractive wives.'
-
-His wife replied, 'Why, thank you, dear.'
+She wanted to know how you cook food stamps.
 
