@@ -1,8 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Welfare Blonde
+Driver
 
-Why did the blonde call the welfare office?
-
-She wanted to know how you cook food stamps.
+Yo mama is so stupid she waited at a Stop sign until it said Go.
 
