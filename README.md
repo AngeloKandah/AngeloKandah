@@ -1,14 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Ticket
+Daughter and Mother
 
-Driving to work, a gentleman had to swerve to avoid a box that fell out of a truck in front of him. Seconds later, a policeman pulled him over for reckless driving. 
-
-Fortunately, another officer had seen the carton in the road. The policmen stopped traffic and recovered the box. It was found to contain large upholstery tacks. 
-
-'I'm sorry sir,' the first trooper told the driver, 'but I am still going to have to write you a ticket.' 
-
-Amazed, the driver asked for what. 
-
-The trooper replied, 'Tacks evasion.'
+A mother and a her daughter go to a restaurant for breakfast to celebrate her birthday. The restaurant is known for its imported cheeses.
+ The mother asks, 'Would you like some cheese, my angel?' The little girl says,'Sure, but can you take out the holes in the cheese?'
 
