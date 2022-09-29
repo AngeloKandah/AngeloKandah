@@ -1,6 +1,11 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-To . . .The . . .
+Tree
 
-The chance of forgetting something is directly proportional to...to...uhh...
+If I'm canoeing up a tree, how many cupcakes does it take to get to the moon? 
+
+
+
+
+None, since vests don't have sleeves.
 
