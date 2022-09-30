@@ -1,11 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Tree
+Comparing The Presidents
 
-If I'm canoeing up a tree, how many cupcakes does it take to get to the moon? 
-
-
-
-
-None, since vests don't have sleeves.
+Asked by his teacher to compare three presidents Johnny thought for a moment and said: 'Well, George Washington couldn't tell a lie.  Richard Nixon couldn't tell the truth.  And George W. Bush can't tell the difference.'
 
