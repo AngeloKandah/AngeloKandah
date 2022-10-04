@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-DIRTY
+Laziness
 
-Yo Momma so dirty she has to sneak up on the water
+The Lazy Boy, by Yu Doit
 
