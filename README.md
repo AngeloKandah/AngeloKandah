@@ -1,14 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Not Sticking!!
+Hotel Clerk
 
-George W Bush wanted a special postage stamp issued, with his picture on it. He instructed his Postmaster General, stressing that it should be of international quality.
-
-When the stamps were released, Bush heard complaints that the stamps were not sticking properly, and he become furious.
-
-He called the chief of the Secret Service and ordered him to investigate the matter.
-
-The chief checked the matter out at several post offices, and then reported on the problem to Bush.
-
-He said, 'Sir, the stamp is really of international quality. The problem is, our citizens are spitting on the wrong side!'
+After a heavy night at the pub, a drunken man decides to sleep off his drunkenness at a local hotel. He approaches the reception desk, takes care of the formalities and heads off to his suite. Several minutes later, the drunk staggers back to the reception desk and demands his room be changed. 'But sir,' said the clerk, 'you have the best room in the hotel.' 'I insist on another room!!!' said the drunk. 'Very good, sir. I'll change you from 502 to 525. Would you mind telling me why you don't like 502?' asked the clerk. 'Well, for one thing,' said the drunk, 'it's on fire.'
 
