@@ -1,12 +1,19 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Wedding
+Bad Excuses for Missing Work
 
-A mother and her child were at a wedding.
+I just found out that I was switched at birth. Legally, I
+shouldn't come to work knowing my employee records may now contain false information.
 
-A little boy looks at his mom and says, 'Mommy, why does the girl wear white?'
+I can't come in to work today because I'll be stalking my previous boss, who fired me for not showing up for work. OK?
 
-His mom replies, 'The bride is in white because she's happy and this is the happiest day of her life.'
+When I got up this morning I took two Ex-Lax in addition to my Prozac.
 
-The boy thinks about this, and then says, 'Well then, why is the boy wearing black?'
+I am stuck in the blood pressure machine down at the pharmacy.
+
+I've used up all my sick days...so I'm calling in dead
+
+The voices told me to clean all the guns today.
+
+The dog ate my car keys, so now I have to hitchhike to the vet.
 
