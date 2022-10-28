@@ -1,9 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Roses are Red
+Mechanics
 
-Roses are red
-Violets are blue
-I'm schizophrenic
-And so am I!
+Q: How many auto mechanics does it take to change a light bulb? 
+
+A: Six - One to force it with a hammer and five to go out for more bulbs.
 
