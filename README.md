@@ -1,8 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Mechanics
+Rene Descartes ...
 
-Q: How many auto mechanics does it take to change a light bulb? 
+Descartes walked into a McDonalds and ordered a veggieburger.
 
-A: Six - One to force it with a hammer and five to go out for more bulbs.
+The guy behind the counter asked 'Do you want fries with that?'
+
+Descartes replied 'I think not,' and poof - he disappeared.
 
