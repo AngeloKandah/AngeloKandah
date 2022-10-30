@@ -1,10 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Rene Descartes ...
+Siren
 
-Descartes walked into a McDonalds and ordered a veggieburger.
+There was a blonde and a brunette in a car. The brunette hears a siren behind them, so she asks the blonde if its lights are on. 
 
-The guy behind the counter asked 'Do you want fries with that?'
-
-Descartes replied 'I think not,' and poof - he disappeared.
+The blonde turns around and says 'yes, no, yes, no.....'
 
