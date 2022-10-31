@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Siren
+Blonde Pen Invintion
 
-There was a blonde and a brunette in a car. The brunette hears a siren behind them, so she asks the blonde if its lights are on. 
+Q.) How does a blonde make a stainless ink pen?
 
-The blonde turns around and says 'yes, no, yes, no.....'
+A.) She doesn't put ink in it.
 
