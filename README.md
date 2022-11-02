@@ -1,10 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Americanization (Hard 'R' Rating)
+First Time
 
-Two Saudis emigrated to America with their families.  On the plane ride over they made a bet about who could become more 'Americanized' in their first year.
+The young blonde bride made her first appointment with a gynecologist and told him that she and her husband wished to start a family.
 
-As agreed, they met exactly one year later.  The first guy pulled up in his Hummer and said to the second guy 'I win.  There's no way you can beat me:  I just dropped my son off at Little League, I'm on my way to pick my daughter up from cheerleading practice, and I stopped at McDonalds on my way here.'
+'We've been trying for months now, doctor, and I don't seem to be able to get pregnant,' she confessed miserably.
 
-And the second guy said 'Fuck you, towelhead!'
+'I'm sure weÂ´ll solve your problem,' the doctor reassured her. 
+
+'If you'll just take off your clothes and get up on the examining table.'
+
+'Well, all right, doctor,' agreed the young woman, blushing, 'but I'd rather have my husband's baby.'
 
