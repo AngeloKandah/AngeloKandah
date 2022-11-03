@@ -1,14 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-First Time
+Now I Lay Me..
 
-The young blonde bride made her first appointment with a gynecologist and told him that she and her husband wished to start a family.
+Now I lay me down to sleep;
 
-'We've been trying for months now, doctor, and I don't seem to be able to get pregnant,' she confessed miserably.
+If I die before I wake,
 
-'I'm sure weÂ´ll solve your problem,' the doctor reassured her. 
-
-'If you'll just take off your clothes and get up on the examining table.'
-
-'Well, all right, doctor,' agreed the young woman, blushing, 'but I'd rather have my husband's baby.'
+Please somebody; step on the BRAKE!
 
