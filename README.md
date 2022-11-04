@@ -1,10 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Now I Lay Me..
+Pessimist
 
-Now I lay me down to sleep;
-
-If I die before I wake,
-
-Please somebody; step on the BRAKE!
+Borrow money from a pessimist---They don't expect it back.
 
