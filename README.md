@@ -1,21 +1,24 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-You've turned into a Mom When.....
+How to Talk Native Southern III
 
-You Know You've Turned Into a Mom When...
-You automatically double-knot everything you tie. 
-
-You find yourself humming the Barney song as you do the dishes. 
-
-You hear a baby cry in the grocery store, and you start to gently sway back and forth, back and forth. However, your children are at school! 
-
-You actually start to like the smell of strained carrots mixed with applesauce. 
-
-You weep through the scene in Dumbo when his mom is taken away, not to mention what Bambi does to you. 
-
-You get soooo into crafts you contemplate writing a book called 101 Fun Crafts to do with Dryer Lint and Eggshells. 
-
-You spend a half hour searching for your sunglasses only to have your teenager say, 'Mom, why don't you wear the ones you pushed up on your head?' 
-
-You are out for a nice romantic meal with your husband, enjoying some real adult conversation, when suddenly you realize that you've reached over and started to cut up his steak!
+Minners - Live bait.
+Misrus - Married woman.
+Nar - Opposite of wide.
+Nayk - Your head sets on it.
+Nup â No.
+Orrel - Them hinges need orrel.
+Ormy - What the sojers go in.
+Pank - A light red color.
+Parch - Sit out on the parch and watch the grass grow.
+Petition - What separate the rooms.
+Poke - A paper bag or sack.
+Pokey - What the shurf and deppity puts crimnals in.
+Salit - A green vegetable.
+Puppet - What the preacher is in.
+Purdy - She is purdy as a pitcher.
+Purt near - Almost; he purt near caught that greased pig.
+Rang - You wear it on your fanger.
+Rut - That there tree sure has long ruts.
+Rah cheer - I was born rah cheer in town.
 
