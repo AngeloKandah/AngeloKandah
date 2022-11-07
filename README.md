@@ -1,24 +1,30 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-How to Talk Native Southern III
+Buckwheat TITLE Darla
 
-Minners - Live bait.
-Misrus - Married woman.
-Nar - Opposite of wide.
-Nayk - Your head sets on it.
-Nup â No.
-Orrel - Them hinges need orrel.
-Ormy - What the sojers go in.
-Pank - A light red color.
-Parch - Sit out on the parch and watch the grass grow.
-Petition - What separate the rooms.
-Poke - A paper bag or sack.
-Pokey - What the shurf and deppity puts crimnals in.
-Salit - A green vegetable.
-Puppet - What the preacher is in.
-Purdy - She is purdy as a pitcher.
-Purt near - Almost; he purt near caught that greased pig.
-Rang - You wear it on your fanger.
-Rut - That there tree sure has long ruts.
-Rah cheer - I was born rah cheer in town.
+All the little rascals sat down for class, and the teacher decided to start off the day with a spelling quiz.
+
+The teacher first asked Darla, 'Darla, can you spell dumb?'
+
+'D-u-m-b,' said Darla
+
+The teacher then said, 'Can you use it in a sentence?'
+
+'Buckwheat is dumb.'
+
+'Okay, can you spell stupid?' said the teacher.
+
+'S-t-u-p-i-d.'
+
+'Can you use it in a sentence?'
+
+'Buckwheat is stupid.'
+
+'Buckwheat, can you spell dictate?'
+
+'D-i-c-t-a-t-e.'
+
+'Can you use it in a sentence?'
+
+'I may be dumb, and I may be stupid, but Darla says my dictate good.'
 
