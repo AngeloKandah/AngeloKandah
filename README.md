@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-How Many Dominicans?
+Pondering the afterlife
 
-How many Dominicans does it take to screw in a lightbulb? 
+There was a dyslexic insomniac agnostic.
 
-Two. Dominican one to hold the bulb and Dominican two to turn Dominican one
+He laid awake all night wondering if there really was a Dog.
 
