@@ -1,86 +1,36 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Great Thinkers of Our Time
+Reasons Why English Teachers Retire Early
 
-Great Thinkers of Our Time?
+Reasons why high school english teachers retire early.
+Actual analogies and metaphors found in high school essays:
 
-Question: If you could live forever, would you and why?
-
-Answer: 'I would not live forever, because we should not live forever, because if we were supposed to live forever, then we would live forever, but we cannot live forever, which is why I would not live forever.'
--- Miss Alabama in the 1994 Miss USA contest
-
-'Whenever I watch TV and see those poor starving kids all over the world, I can't help but cry. I mean I'd love to be skinny like that but not with all those flies and death and stuff.'
--- Mariah Carey
-
-'Researchers have discovered that chocolate produces some of the same reactions in the brain as marijuana. The researchers also discovered other similarities between the two, but can't remember what they are.'
--- Matt Lauer on NBC's Today show, August 22
-
-'I haven't committed a crime. What I did was fail to comply with the law.'
--- David Dinkins, New York City Mayor, answering accusations
-that he failed to pay his taxes.
-
-'Smoking kills. If you're killed, you've lost a very important part of your life.'
--- Brooke Shields, during an interview to become spokesperson for a federal anti-smoking campaign
-
-'I've never had major knee surgery on any other part of my
-body.'
--- Winston Bennett, University of Kentucky basketball forward
-
-'Outside of the killings, Washington has one of the lowest crime rates in the country.'
--- Former Mayor Marion Barry, Washington, D.C.
-
-'We're going to turn this team around 360 degrees.'
--- Jason Kidd, upon his drafting to the Dallas Mavericks
-
-'I'm not going to have some reporters pawing through our papers. We are the president.'
--- Hillary Clinton commenting on the release of subpoenaed
-documents
-
-'China is a big country, inhabited by many Chinese.'
--- Former French President Charles De Gaulle
-
-'That lowdown scoundrel deserves to be kicked to death by a
-jackass, and I'm just the one to do it.'
--- A congressional candidate in Texas
-
-'When I have been asked during these last weeks who caused the riots and the killing in L.A., my answer has been direct and simple: Who is to blame for the riots? The rioters are to blame. Who is to blame for the killings? The killers are to blame.'
--- Former U.S. Vice-President Dan Quayle on the complex social issues behind the Los Angeles Riots
-
-'I don't feel we did wrong in taking this great country away
-from them. There were great numbers of people who needed new
-land, and the Indians were selfishly trying to keep it for
-themselves.'
--- John Wayne
-
-'Half this game is ninety percent mental.'
--- Philadelphia Phillies manager Danny Ozark
-
-'It isn't pollution that's harming the environment. It's the
-impurities in our air and water that are doing it.'
--- Former U.S. Vice-President Dan Quayle
-
-'Without censorship, things can get terribly confused in the
-public mind.'
--- General William Westmoreland
-
-'It's like changing the rules in the middle of the stream.'
--- Rev. Jesse Jackson
-
-'I don't know of anyone who wants this to be over more than me, except maybe everyone else in America.'
--- President William Jefferson Clinton
-
-'What a waste it is to lose one's mind.  Or not to have a mind is being very wasteful. How true that is.'
--- Former U.S. Vice-President Dan Quayle
-
-'If you let that sort of thing go on, your bread and butter will be cut right out from under your feet.'
--- Former British foreign minister Ernest Bevin
-
-'I love California. I practically grew up in Phoenix.'
--- Former U.S. Vice-President Dan Quayle
-
-And in 2000, our boy Dan was quoted as saying that the
-Republicans would definitely nominate someone this time who
-would beat Bill Clinton. Of course the 22nd amendment precludes Bill from running again...
-
--Credit to Net3Media and my friend who forwarded the email to me.
+1.	Her face was a perfect oval, like a circle that had its two sides gently compressed by a Thigh Master. 
+2.	His thoughts tumbled in his head, making and breaking alliances like underpants in a dryer without Cling Free.
+3.	He spoke with the wisdom that can only come from experience, like a guy  who went blind because he looked at a solar eclipse without one of those boxes with a pinhole in it and now goes around the country speaking at high schools about the dangers of looking at a solar eclipse without one of those boxes with a pinhole in it.
+4.	She grew on him like she was a colony of E. coli and he was room-temperature Canadian beef.
+5.	She had a deep, throaty, genuine laugh, like that sound a dog makes just before it throws up. 
+6.	Her vocabulary was as bad as, like, whatever.
+7.	He was as tall as a six-foot-three-inch tree.
+8.	The revelation that his marriage of 30 years had disintegrated because of his wife's infidelity came as a rude shock, like a surcharge at a formerly surcharge-free ATM. 
+9.	The little boat gently drifted across the pond exactly the way a bowling ball wouldn't.
+10.	McBride fell 12 stories, hitting the pavement like  a Hefty bag filled with vegetable soup.
+11.	From the attic came an unearthly howl. The whole scene had an eerie, surreal quality, like when you're on vacation in another city and Jeopardy comes on at 7:00 p.m. instead of 7:30.
+12.	Her hair glistened in the rain like a nose hair after a sneeze.
+13.	The hailstones leaped from the pavement, just like maggots when you fry them in hot grease.
+14.	Long separated by cruel fate, the star-crossed lovers raced across the grassy field toward each other like two freight trains, one having left Cleveland at 6:36 p.m. traveling at 55 mph, the other from Topeka at 4:19 p.m. at a speed of 35 mph. 
+15.	They lived in a typical suburban neighborhood with picket fences that resembled Nancy Kerrigan's teeth.
+16.	John and Mary had never met. They were like two hummingbirds who had also never met. 
+17.	He fell for her like his heart was a mob informant and she was the East River.
+18.	Even in his last years, Grandpappy had a mind like a steel trap only one that had been left out so long, it had rusted shut.
+19.	Shots rang out, as shots are known to do. 
+20.	The plan was simple, like my brother-in-law Phil. But unlike Phil, his plan just might work.
+21.	The young fighter had a hungry look, the kind you get from not eating for a while. 
+22.	He was as lame as a duck. Not the metaphorical  lame duck, either, but a real duck that was actually lame. Maybe from stepping on a land mine or something.
+23.	The ballerina rose gracefully en pointe and extended one slender leg behind her, like a dog at a fire hydrant. 
+24.	It was an American tradition, like fathers chasing kids around with power tools.
+25.	He was deeply in love. When she spoke, he thought he heard bells, as if she were a garbage truck backing up.
+26.	Her eyes were like limpid pools, only they had  forgotten to put in any pH cleanser. 
+27.	She walked into my office like a centipede with 98 missing legs.
+28.	It hurt the way your tongue hurts after you accidentally staple it to the wall.
 
