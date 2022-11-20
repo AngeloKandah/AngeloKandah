@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-So Stupid
+Love...
 
-Yo momma so stupid that she forgot where she parked her car in an empty parking lot!
+Yo mama's so fat, she fell in love and broke it.
 
