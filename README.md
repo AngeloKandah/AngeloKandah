@@ -1,14 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Honest Lawyer
+Environmentalists
 
-An independent woman started her own business. She was shrewd and diligent, so business kept coming in. Pretty soon she realized she needed an in-house counsel and so she began interviewing young lawyers.
+A rich lady from California, who was a tree hugger and a vociferous anti-hunter, purchased a piece of timberland in Oregon. There was a large tree on one of the highest points in the tract. She wanted to get a good view of her land so she started to climb the big tree. As she neared the top, she encountered a spotted owl that attacked her. In her haste to escape, the lady slid down the tree to the ground and got many splinters in her private parts.
 
-'As I'm sure you can understand,' she started off with one of the first applicants, 'in a business like this, our personal integrity must be beyond question.' She leaned forward; 'Mr. Peterson, are you an 'honest' lawyer?'
-
-'Honest?' replied the job prospect. 'Let me tell you something about honest. Why, I'm so honest that my dad lent me fifteen thousand dollars for my education and I paid back every penny the minute I tried my very first case.'
-
-'Impressive. And what sort of case was that?'
-
-He squirmed in his seat and admitted, 'My dad sued me for the money.'
+In considerable pain, she hurried to the nearest country doctor. Being a hunter himself, the doctor listened to her story with great patience and then told her to go into the examining room and he would see if he could help her. She sat and waited for three hours before the doctor reappeared. The angry lady demanded, 'What took you so long?' He smiled and then told her, 'Well, I had to get permits from the Environmental Protection Agency, the Forest Service, and the Bureau of Land Management before I could remove old-growth timber from a recreational area... and I'm sorry, they all turned me down.'
 
