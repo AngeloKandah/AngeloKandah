@@ -1,18 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Frank and Matt
+How Can You Tell If You're One of Life's Losers?...
 
-Two college students, Frank and Matt, are riding on a New York City subway when a beggar approaches them asking for spare change.
+You don't have any luck at all if:
 
-Frank adamantly rejects the man in disgust.
+-The guarantee on your used car expires two hours before the car's engine does.
 
-Matt, on the other hand, whips out his wallet, pulls out a couple of singles and gladly hands them over to the beggar with a smile.
+- You start to go bald at the same time you reach puberty.
 
-The beggar thanks him kindly and then continues on to the other passengers.
+-You get your BIG break and make the football team only to trip over the bench and break your leg.
 
-Frank is outraged by his friend's act of generosity.
-
-'What on earth did you do that for?' shouts Frank., 'You know he's only going to use it on drugs or booze.'
-
-Matt replies, 'And we weren't?'
+-You find a ten-dollar bill and get arrested when you try to spend it because it's counterfeit.
 
