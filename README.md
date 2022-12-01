@@ -1,10 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Two Tall Trees...
+What's the Difference...
 
-Two tall trees, a birch and a beech, are growing in the woods. A small tree begins to grow between them. The beech says to the birch: 'Is that a son of a beech or a son of a birch?' 
+What's the difference between a toad and a horny toad?
 
-The birch says it cannot tell. Just then a woodpecker lands on the sapling. The birch says, 'Woodpecker, you are a tree expert. Can you tell if that is a son of a beech or a son of a birch?' 
-
-The woodpecker takes a taste of the small tree and replies: 'It is neither a son of a beech nor a son of a birch. It is, however, the best piece of ash I have ever put my pecker in!'
+One says 'Ribbit ribbit' and the other says 'Rubbit rubbit'.
 
