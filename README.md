@@ -1,8 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-What's the Difference...
+Chair
 
-What's the difference between a toad and a horny toad?
+A man and wife are out shopping one day.
 
-One says 'Ribbit ribbit' and the other says 'Rubbit rubbit'.
+The wife turns to her husband and says; 'Darling it's my mum's birthday tomorrow what shall we get her? Perhaps something electric?'
+
+'A chair?' replies the husband.
 
