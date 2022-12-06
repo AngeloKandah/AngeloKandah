@@ -1,18 +1,13 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Note to Wife
+New Job
 
-An Illinois man left the snowballed streets of Chicago for a vacation in Florida. His wife was on a business trip and was planning to meet him there the next day. When he reached his hotel, he decided to send his wife a quick e-mail.
-
-Unable to find the scrap of paper on which he had written her e-mail address, he did his best to type it in from memory. Unfortunately, he missed one letter, and his note was directed instead to an elderly preacher's wife whose husband had passed away only the day before. When the grieving widow checked her e-mail, she took one look at the monitor, let out a piercing scream, and fell to the floor dead.
-
-At the sound, her family rushed into the room and saw this note on the screen:
-
-Dearest Wife,
-
-Just got checked in. Everything prepared for your arrival tomorrow.
-
-Your Loving Husband.
-
-P.S. Sure is hot down here.
+A blond got a new job cutting down trees. On the first day her boss handed her a chainsaw and said,
+'Now you have to go into that forest and cut down as many trees as possible using that chain saw. Please be careful with it and also please remember that the minimum is 6 trees a day.'
+The blonde went into the forest and cut down trees but at the end of the day she had only managed to cut down 4.
+Her boss decided to give another chance but the next day she only managed 3. He decided to give her one last chance but on the third day she only cut two trees.
+When she finished work, he called the blond over and took her back into the forest.
+'Right,'he said,'You must be doing something wrong here so watch how I do it, then I'll give you one more chance before you're fired.
+So he stood in front of the tree and started up the chainsaw. The blond looked around suddenly and said,
+'What's that noise?'
 
