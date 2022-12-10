@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Caught on the Job
+Report Card
 
-The new army recruit was given guard duty at 2 a.m. He did his best for a while, but at about 4 a.m. he went to sleep. He awakened to find the officer of the day standing before him.
-
-Remembering the heavy penalty for being asleep on guard duty, this smart young man kept his head bowed for another moment and looked upward and reverently said, 'A-a-a-men!'
+SILVIA: Dad, can you write in the dark? 
+FATHER: I think so. What do you want me to write?
+SYLVIA: Your name on this report card.
 
