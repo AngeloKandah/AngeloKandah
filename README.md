@@ -1,6 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-If You Were My...
+President of the United States
 
-A woman at a party walked up to a man and told him, ''If you were my husband I would poison your drink.' The man replied, ''If you were my wife I would drink it.''
+A father, angry at his son for not doing well at school tells him, 'At your age, George Washington was the best student in his class.'
+
+'Yeah dad...' replies the kid...'and at yours, he was the President of the United States!'
 
