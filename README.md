@@ -1,8 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-President of the United States
+What Your Neighbors Think
 
-A father, angry at his son for not doing well at school tells him, 'At your age, George Washington was the best student in his class.'
+Jack was living in Arizona, during a heat wave, when the following took place. 
 
-'Yeah dad...' replies the kid...'and at yours, he was the President of the United States!'
+'It's just too hot to wear clothes today,' complained Jack, as he stepped out of the shower. 'Honey, what do you think the neighbors would think if I mowed the lawn like this?' 
+
+'Probably that I married you for your money.'
 
