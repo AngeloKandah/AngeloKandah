@@ -1,10 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-What Your Neighbors Think
+Second Meaning of Thompson
 
-Jack was living in Arizona, during a heat wave, when the following took place. 
+We all know the world war II games right?And they also have the Thompson gun which belongs to the Americans and British.
 
-'It's just too hot to wear clothes today,' complained Jack, as he stepped out of the shower. 'Honey, what do you think the neighbors would think if I mowed the lawn like this?' 
+There is a 2nd meaning.
 
-'Probably that I married you for your money.'
+(Capital letters make for Thompson not just the beginning words.If you know what I mean)
+
+Thompson means:Theories Having Oatmeal Mayhem.Prefers to Sadness because Oatmeal is Numb.
+
+Capital letters are the letters of Thompson.
 
