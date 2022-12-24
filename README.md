@@ -1,34 +1,28 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Chuck Norris Facts: 33
+Why MEN Should Write Advice Columns
 
-Chuck Norris uses Tabasco Sauce for eye drops.
+Dear John,
 
-Chuck Norris can get Blackjack with just one card.
+I hope you can help me. The other day, I set off for work leaving my husband in the house watching TV. My car stalled and then it broke down about a mile down the road and I had to walk back to get my husband's help. 
 
-'One time I was with Norris in the back of a pickup truck, along with a live deer. Norris goes up to the deer and says, 'I'm Chuck Norris! SAY IT!' Then he manipulates the deer's lips in such a way as to make it say, 'ChuckNorris' ... It wasn't exactly like it, but it was pretty good for a deer!''
+When I got home, I couldn't believe my eyes. He was in our bedroom with the neighbour's daughter! I am 32, my husband is 34, and the neighbour's daughter is 19. We have been married for ten years. 
 
-People created the automobile to escape from Chuck Norris...Not to be outdone, Chuck Norris created the automobile accident.
+When I confronted him, he broke down and admitted that they had been having an affair for the past six months. He won't go to counselling and I'm afraid I am a wreck and need advice urgently. 
 
-Chuck Norris roundhouse kicks people in the face first and asks questions later.
+Can you please help? 
 
-When Chuck Norris was born, the only person who cried was the doctor. Never slap Chuck Norris.
+Sincerely, Sheila 
 
-Chuck Norris can sneeze with his eyes open.
+John's reply... 
 
-Archeologists in India recently uncovered a new dinosaur. It's actually many dinosaurs but one is in the middle of all the others. The one in the middle is believed to have killed the others with a single roundhouse kick to the face. The archeologists wanted to call it ChuckNorrisaurs but the Indian government changed the name to Himotosaurous because it's simply not possible for Mr. Norris to be killed.
+Dear Sheila, 
 
-Chuck Norris got a perfect score on his SAT's, simply by writing Chuck Norris for every answer.
+A car stalling after being driven a short distance can be caused by a variety of faults with the engine. 
 
-Chuck Norris has to use a stunt double when he does crying scenes.
+Start by checking that there is no debris in the fuel line. If it is clear, check the vacuum pipes and hoses on the intake manifold and check all rounding wires. 
 
-Chuck Norris successfully seperated twins conjoined at the head by roundkicking them in the face.
+If none of these approaches solves the problem, it could be that the fuel pump itself is faulty, causing low delivery pressure to the injectors.
 
-Dinosaurs went extinct because of the Chuck Norrisaurus.
-
-People have often asked the United States, What is your secret weapon against terrorists? We simply reply...Chuck Norris
-
-Chuck Norris wears Orion's Belt around his pinky toe and he eats with the Big Dipper. 
-
-Chuck Norris eats lightning and farts thunder.
+I hope this helps, John
 
