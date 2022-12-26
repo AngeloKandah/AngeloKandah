@@ -1,8 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-What time is it?
+Graveyard
 
-What time is it when an elephant sits on your fence?
-
-time to get a new fence!
+Your momma so ugly when she walked through the graveyard 2 men came after her with shovels.
 
