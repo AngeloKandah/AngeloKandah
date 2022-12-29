@@ -1,6 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Best and Worst Things in Life.
+Ice Cubes
 
-The best things in life are free and the worst things in life cost only $19.95.
+Why should you never ask a blonde to make ice cubes for you?
+
+
+
+She'll never remember the recipe.
 
