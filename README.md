@@ -1,12 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Chicken Vs. Possum
+Dishes
 
-One beautiful morning, a husband and wife decided to go for a drive in the country. Unfortunately, no matter which road they took, they kept seeing dead possums lying on the shoulder.
+A  mother and son were washing dishes while the father and daughter were watching TV in the family room.  Suddenly, there was a crash of breaking dishes, then complete silence.
 
-After several miles of this, the husband turned to his wife and said, 'Now I think I know the answer to the age-old question 'Why did the chicken cross the road?''
+The girl looked at her dad and said, 'It was Mom.'
 
-'What is it?' she asked.
+'How do you know?'
 
-'Well,' he replied, 'it was to prove to the possums that it could be done.'
+'She didn't say anything.'
 
