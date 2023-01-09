@@ -1,10 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-What Do You Call....
+Deposit
 
-Q. What do you call a blond, redneck lawyer?
+Where do fish keep their life savings?
 
-
-
-A. Yo Momma!
+At the river bank!
 
