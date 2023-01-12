@@ -1,10 +1,16 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-An idiot and Cows
+Unfamiliar With the Term
 
-Guy1: Thats a bunch of cows.
-Farmer: No, a herd.
-Guy1: Of course I've heard of cows.
-Farmer:.No, I mean the cow herd
-Guy1: I have no secrets from cows
+These four guys were walking down the street; a Saudi, a Russian, a North Korean, and a New Yorker. 
+
+A reporter comes running up and says, 'Excuse me, what is your opinion about the meat shortage?'
+
+The Saudi says, 'What's 'shortage'?'
+
+The Russian says, 'What's 'meat'?'
+
+The North Korean says, 'What's 'opinion'?'
+
+The New Yorker, says, ''Excuse me'? What's 'excuse me'?'
 
