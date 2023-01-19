@@ -1,6 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-So Short!
+Square
 
-Yo Momma so short, you can see her feet on her driving licence!
+Why are the blonde's boobs square?
+
+She forgot to take the tissues out of the box!
 
