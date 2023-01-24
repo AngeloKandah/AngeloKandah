@@ -1,18 +1,16 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Six Retired Floridians...
+Races
 
-Six retired Floridians were playing poker in the condo clubhouse when Meyerwitz loses $500 on a single hand, clutches his chest and drops dead at the table. 
+Some race horses are staying in a stable. One of them starts to boast about his track record. 'In the last 15 races, I've won 8 of them!'
 
-Showing respect for their fallen comrade, the other five continue playing standing up. Finkelstein looks around and asks, 'So, who's gonna tell the wife?' They draw straws. Goldberg picks the short one. They tell him to be discreet, be gentle, don't make a bad situation any worse. 
+Another horse breaks in, 'Well, in the last 27 races, I've won 19!'
 
-'Discreet? I'm the most discreet man you'll ever meet. Discretion is my middle name. Leave it to me.' Goldberg goes over to the Meyerwitz apartment and knocks on the door. 
+'Oh, that's good, but in the last 36 races, I've won 28!' says another, flicking his tail.
 
-The wife answers and asks what he wants.
+At this point, they notice that a greyhound has been sitting there, listening. 'I don't mean to boast,' says the greyhound, 'but in my last 90 races, I've won 88 of them!'
 
-Goldberg declares, 'Your husband just lost $500 and is afraid to come home.' 
+The horses are clearly amazed.
 
-The wife says, 'Tell him to drop dead!' 
-
-'I'll go tell him,' says Goldberg.
+'Wow!' says one, after a hushed silence. 'A talking dog.'
 
