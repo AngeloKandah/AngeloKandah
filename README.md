@@ -1,22 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Court Case
+Fisherman
 
-This is a true story.
+Three freshman engineering students were sitting around talking between classes, when one brought up the question of who designed the human body.
 
-This happened many years ago, and was told me by a man with spare time on his hands, who used to spectate in court to pass some of that spare time.
+One of the students insisted that the human body must have been designed by an electrical engineer because of the perfection of the nerves and synapses.
 
-Lawyer - 'You say you saw the defendant's car involved in a road accident at the junction of X and Y?'
+Another disagreed, and exclaimed that it had to have been a mechanical engineer who designed the human body. The system of levers and pullies is ingenious.
 
-Policeman - 'That is correct.'
-
-L - 'And where were you at this time?' P - 'At the junction of X and Z.'
-
-L - 'So you were some 80 yards away when the incident occurred?' P - 'Yes, I was.'
-
-L, in incredulous accent - 'So you were 80 yards away, but you say you knew this vehicle had been involved in an accident?' P - 'Yes.'
-
-L - 'Then please tell the court how you knew this vehicle went through a red light?' P - 'Because the light that I could see was green.'
-
-L, triumphantly - 'Ah, but how did you know that it had been in an accident?' P - 'Because it went past on its roof.'
+'No,' the third student said. 'You're both wrong. The human body was designed by an architect. Who else but an architect would have put a toxic waste line through a recreation area?'
 
