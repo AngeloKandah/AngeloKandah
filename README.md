@@ -1,12 +1,20 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Fisherman
+Word Imperfect
 
-Three freshman engineering students were sitting around talking between classes, when one brought up the question of who designed the human body.
+One day, someone phoned Central Manhattan Office.
 
-One of the students insisted that the human body must have been designed by an electrical engineer because of the perfection of the nerves and synapses.
+Caller: Good afternoon. I'm John Smith.
+Operator: GOOD AFTERNOON! CAN I HELP YOU?
+Caller: Who are you? Why are you so rude?
+Operator: WHO ARE YOU LOOKING FOR?
+Caller: I am looking for my sister, Gabrielle Smith. She works here, right?
+Operator: SHE IS IN THE TOILET!
+Caller: Okay. Now I want to know who you are. Why are you so rude?
+Operator: I'M SAW LEE!
+Caller: Oh, you should be sorry because you are so rude!
 
-Another disagreed, and exclaimed that it had to have been a mechanical engineer who designed the human body. The system of levers and pullies is ingenious.
+Then the caller hung up the phone.
 
-'No,' the third student said. 'You're both wrong. The human body was designed by an architect. Who else but an architect would have put a toxic waste line through a recreation area?'
+*Try to pronounce 'SAW LEE'. It sounds like 'SORRY', right?
 
