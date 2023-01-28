@@ -1,20 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Word Imperfect
+Calming Your Son
 
-One day, someone phoned Central Manhattan Office.
+In the supermarket was a man pushing a cart which contained a screaming, bellowing baby. The gentleman kept repeating softly, 'Don't get excited, Albert; don't scream, Albert; don't yell, Albert; keep calm, Albert.' 
 
-Caller: Good afternoon. I'm John Smith.
-Operator: GOOD AFTERNOON! CAN I HELP YOU?
-Caller: Who are you? Why are you so rude?
-Operator: WHO ARE YOU LOOKING FOR?
-Caller: I am looking for my sister, Gabrielle Smith. She works here, right?
-Operator: SHE IS IN THE TOILET!
-Caller: Okay. Now I want to know who you are. Why are you so rude?
-Operator: I'M SAW LEE!
-Caller: Oh, you should be sorry because you are so rude!
+A woman standing next to him said, 'You certainly are to be commended for trying to soothe your son, Albert.' 
 
-Then the caller hung up the phone.
-
-*Try to pronounce 'SAW LEE'. It sounds like 'SORRY', right?
+The man looked at her and said, 'Lady, I'm Albert.'
 
