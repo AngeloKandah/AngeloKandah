@@ -1,18 +1,18 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Unruly Child
+Stay Healthy
 
-A man scolded his son for being so unruly and the child rebelled against his father. He got some of his clothes, his teddy bear and his piggy bank and proudly announced, 'I'm running away from home!' 
+Miss Bea, the church organist, was in her eighties and had never been married. She was much admired for her sweetness and kindness to all.
 
-The father calmly decided to look at the matter logically. 'What if you get hungry?' he said. 
+One afternoon, the pastor came to call on her, and she showed him into her quaint sitting room. She invited him to have a seat while she prepared tea.
 
-'Then I'll come home and eat!' bravely declared the child. 'And what if you run out of money?' 
+As he sat facing her old pump organ, the young minister noticed a cut glass bowl sitting on top of it, filled with water. In the water floated, of all things, a condom!
 
-'I will come home and get some!' readily replied the child. 
+When she returned with tea and scones, they began to chat. The pastor tried to stifle his curiosity about the bowl of water and its strange floater, but soon it got the better of him and he could no longer resist.
 
-The man then made a final attempt, 'What if your clothes get dirty?' 
+'Miss Bea,' he said, 'I wonder if you would tell me about this?' pointing to the bowl.
 
-'Then I'll come home and let mommy wash them,' was the reply. 
+'Oh, yes,' she replied, 'isn't it wonderful? I was walking through the park a few months ago, and I found this little package on the ground. The directions said to place it on the organ, keep it wet, and it would prevent the spread of disease.'
 
-The man shook his head and exclaimed, 'This kid is not running away from home, he's going off to college!'
+'And you know... I haven't had a cold all winter.'
 
