@@ -1,8 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Sign
+Good Way
 
-Laundromat sign:
-
-Automatic Washing Machines: Please remove all your clothes when the light goes out.
+A good way to save face is to keep the lower half shut.
 
