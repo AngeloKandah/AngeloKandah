@@ -1,6 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Good Way
+Not Another Redneck Joke
 
-A good way to save face is to keep the lower half shut.
+You are a redneck if:
+
+You think the following is funny
+
+You haven't read the joke 'You are a Redneck If... #900'.
 
