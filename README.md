@@ -1,8 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Agony
+Stupid
 
-Definition of Agony?
-
-One armed man hanging off a cliff with itchy balls
+Yo momma is so stupid, she's stupid.
 
