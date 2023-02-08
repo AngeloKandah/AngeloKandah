@@ -1,6 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Stupid
+Why Did Humpty Dumpty Have a Great Fall?
 
-Yo momma is so stupid, she's stupid.
+Larry: Why did Humpty Dumpty have a great Fall?
+
+Mary: Because he had a bad summer.
 
