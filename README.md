@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-A Blonde and Red Head
+She Could be My Twin
 
-What did the blonde say to the red head?
-
-Nothing. She couldn't remember what she was going to say!
+Two friends went to the mall to go shopping; one was a brunette and the other was blonde.
+As they were shopping, the blonde suddenly said: 'That girl could pass as my twin.'
+The brunette starts laughing. The blonde says: 'What is so funny?' The brunette says, 'That was a mirror.'
 
