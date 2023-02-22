@@ -1,12 +1,22 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Wedding
+Just Like Me
 
-A mother and her child were at a wedding.
-
-A little boy looks at his mom and says, 'Mommy, why does the girl wear white?'
-
-His mom replies, 'The bride is in white because she's happy and this is the happiest day of her life.'
-
-The boy thinks about this, and then says, 'Well then, why is the boy wearing black?'
+This is a joke to do to a very gullible person.  You start off by telling that person to say 'Just like me', whenever you say something.  You then start:
+'I went to my house'
+Just like me.
+'And walked through the door'
+just like me
+'and up the stairs'
+just like me
+'and then I walked down the hall'
+just like me
+'and opened the door to my room'
+just like me
+' And then I heard a noise'
+just like me
+' and I looked out my window'
+just like me
+'And saw a monkey that looked'
+just like me
 
