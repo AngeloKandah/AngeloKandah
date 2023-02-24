@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Announcement
+Offender
 
-Heard over the hospital public address system:
+Officer: 'And you still insist you're innocent, in spite of the fact that we have six witnesses to the crime ?' 
 
-Due to a mix up in Urology, no apple juice will be served this morning.
+Offender: 'If it's witnesses you want, I can produce seventy people who didn't see me steal the stuff.'
 
