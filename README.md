@@ -1,6 +1,9 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Bills
+Poland
 
-Bills travel through the mail at twice the speed of checks.
+What do you call a pretty woman in Poland?
+
+
+A tourist
 
