@@ -1,6 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Car
+Why Did the Squirrel Cross the Road
 
-Yo momma's so fat that a car hit her and she turned around and said 'Hey! Who threw that rock!'
+Why did the squirrel cross the road?
+
+Because it was NUTS!!!!!!!!!!!!!
 
