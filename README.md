@@ -1,6 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Daffynition 1
+FBI
 
-zebra: 25 sizes bigger than an 'A' bra
+How many FBI agents does it take to change a lightbulb?
+Shut up! We'll be asking the questions here.
 
