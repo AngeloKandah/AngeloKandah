@@ -1,16 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Meeting the Pope
+Boarding from what gate?
 
-A rich American tourist was holidaying in Rome, and was intent on seeing the Pope. There he stood, in a big long line with a rather expensive suit on, hoping the Pope would notice how smart he was and perhaps talk a few words with him.
+At the airport for a business trip, I settled down to wait for the boarding announcement at Gate 35. Then I heard the voice on the public address system saying, 'We apologize for the inconvenience, but Delta Flight 570 will board from Gate 41.'
 
-As the Pope made his way slowly down the line, he walked right past the American, hardly even noticing him. 
+So my family picked up our luggage and carried it over to Gate 41. Not ten minutes later the public address voice told us that Flight 570 would in fact be boarding from Gate 35.
 
-The Pope then stopped next to a low-life sot, leaned over and whispered something in the sot's ear, and made his way on again.
-
-This really angered the American. After speaking with the drunkard, the American agreed to pay $1000 dollars to exchange clothing, in the hope that the Pope would speak to him the next day. 
-
-The next morning the American stood in the line, waiting to see the Pope and hopefully exchange a few words. The Pope was making his way slowly up to the American. When he finally reached him, he leaned over to the American and spoke softly into his ear..
-
-'I thought I told you yesterday to get out of here.'
+So, again, we gathered our carry-on luggage and returned to the original gate. Just as we were settling down, the public address voice spoke again: 'Thank you for participating in Delta's physical fitness program.
 
