@@ -1,13 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-President's Puzzle
+Keep Your Head Down
 
-Dick Cheney walks into the Oval Office and sees The President whooping and hollering. 
-'What's the matter, Mr. President?' the Vice President inquired.
+A young man is playing golf with a priest. At a short hole the priest asks, 'What are you going to use on this hole son?'
 
-'Nothing at all, boss. I just done finished a jigsaw puzzle in record time!' the President beamed. 
+The young man says, 'An eight iron, father. How about you?'
 
-'How long did it take you?' 
+The priest says, 'I'm going to hit a soft seven and pray.'
 
-'Well, the box said '3 to 5 Years' but I did it in a month!'
+The young man hits his eight iron and puts the ball on the green. The priest tops his 7 iron and dribbles the ball out a few yards.
+
+The young man says, 'I don't know about you father, but in my church when we pray, we keep our head down.'
 
