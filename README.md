@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-President
+Restless
 
-Why did the first blonde president move out of the oval office?
+Little Bonnie became restless as the preacher's sermon dragged on and on.
 
-She couldn't find a corner to put her stuff in.
+Finally, she leaned over to her mother and whispered, 'Mommy, if we give him the money now, will he let us go?Ã®
 
