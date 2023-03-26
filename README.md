@@ -1,6 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Health Is...
+Enzymes and Hormones
 
-Health is merely the slowest possible rate at which one can die.
+What's the difference between an enzyme and a hormone?
+
+You can't hear an enzyme!
 
