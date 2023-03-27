@@ -1,8 +1,9 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Enzymes and Hormones
+Bullfighters
 
-What's the difference between an enzyme and a hormone?
+What Do You Call Four Bullfighters In Quicksand?
 
-You can't hear an enzyme!
+
+Quattro Sinko.
 
