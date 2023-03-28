@@ -1,9 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Bullfighters
+A Meeting With the Board
 
-What Do You Call Four Bullfighters In Quicksand?
+After a long, dry sermon, the minister announced that he wished to meet with the church board after the service. The first man to arrive was a stranger.
 
+'You misunderstood my announcement. This is a meeting of the board,' said the minister.
 
-Quattro Sinko.
+'I know,' said the man. 'If there is anyone here more bored than I am, I'd like to meet him.'
 
