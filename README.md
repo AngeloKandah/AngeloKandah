@@ -1,8 +1,24 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Same Egg
+Top 10 Most Rejected Children Book Titles
 
-Two farmers were boasting about the strongest wind they'd ever experienced. 'Out here in California,' said one, 'I've seen the fiercest wind in my life. You know those giant redwoods trees? Well the wind got so strong it bent them right over.'
+1. The Magical World Inside The Abandoned Refrigerator 
 
-'That's nothing,' said the farmer from Iowa. 'Back on my farm we had a wind one day that blew a hundred miles per hour. It was so bad that one of my hens had her back turned to the wind and laid the same egg six times!'
+2. Where to Find the Toys in the Oven 
+
+3. 101 Games to Play in the Road 
+
+4. Homemade Fireworks using a Bathtub, a Blowdryer, and a Fork 
+
+5. Your Nightmares are Real 
+
+6. Monsters Killed Grandpa 
+
+7. All Guns Squirt Water 
+
+8. How Fun it is to Tie a Squirrel to a Kite 
+
+9. If it's Storming out, the Best Place to Take Shelter is under a Tree 
+
+10. Dad's New Wife Robert
 
