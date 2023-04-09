@@ -1,6 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Yo Momma So Skinny..........
+Snowflake
 
-yo momma so skinny she can hula-hoop with a cheerio.
+Knock Knock
+
+Who's there?
+
+Snowflake.
+
+Snowflake who?
+
+There's snowflake like home!
 
