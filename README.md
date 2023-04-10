@@ -1,14 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Snowflake
+Have You Ever Noticed
 
-Knock Knock
+That sometimes when you cry, no one sees your tears. 
 
-Who's there?
+Sometimes when you're sad, no one understands your pain. 
 
-Snowflake.
+Sometimes when you're happy, no one sees your smile. 
 
-Snowflake who?
-
-There's snowflake like home!
+But you just have to fart once, and EVERYBODY knows.
 
