@@ -1,13 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Karate Pig
+Lilac Crazy
 
-Why should you look out for a pig that knows karate?
+The bartender at our golf club named a drink Lilac Crazy in honour of one of the members.
 
-
-
-
-
-
-It might give you a pork chop!
+Every time the member came to the 19th hole, that's exactly what he did.
 
