@@ -1,28 +1,20 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Signs of Aging II
+Married Couple
 
-Signs of Aging
+On their way to a justice of the peace to get married, a couple had a fatal car accident. The couple found themselves sitting outside Heaven's Gate waiting on St.Peter to do an intake. While waiting, they wondered if they could possibly get married in Heaven. 
 
-You just can't stand people who are intolerant.
+St. Peter finally showed up and they asked him. St. Peter said, 'I don't know, this is the first time anyone has asked. 'Let me go find out.' and he left. 
 
-The best part of your day is over when your alarm clock goes off.
+The couple sat and waited for an answer...for a couple of months...and they began to wonder if they really should get married in Heaven, what with the eternal aspect of it all. 'What if it doesn't work?' they wondered, 'Are we stuck together forever?' 
 
-You burn the midnight oil until 9 pm.
+St. Peter returned after yet another month, looking some what bedraggled. 'Yes,' he informed the couple, 'you can get married in Heaven.' 
 
-Your pacemaker makes the garage door go up when you watch a pretty girl go by.
+'Great,'said the couple, 'but what if things don't work out? Could we also get a divorce in Heaven?' 
 
-The little grey haired lady you help across the street is your wife.
+St. Peter, red-faced, slammed his clipboard onto the ground. 
 
-You have too much room in the house and not enough room in the medicine cabinet.
+'What's wrong?', asked the frightened couple. 
 
-The gleam in your eyes is from the sun hitting your bifocals. 
-
-Your children begin to look middle-aged. 
-
-You've finally reached the top of the ladder only to find it's leaning against the wrong wall. 
-
-Your mind makes contracts your body can't keep. 
-
-You're 17 around the neck, 42 around the waist, and 96 around the golf course.
+'COME ON!' St. Peter shouted, 'It took me three months to find a priest up here! Do you have any idea how long it will take me to find a lawyer?'
 
