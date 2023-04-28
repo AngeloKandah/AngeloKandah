@@ -1,18 +1,17 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Jesus Christ!
+First Time
 
-The preschoolers' Sunday school teacher told them that she wanted each of them to learn one fact about Jesus by the following Sunday. The next Sunday, she asked each of them what they had learned.
+It's your first time. As you lie back your muscles tighten. You put him off for awhile searching for an excuse, but he refuses to be swayed as he approaches you. He asks if you're afraid and you shake your head bravely.
 
-'I learned that he was born in a manger,' said Julie.
+He has had more experience, but it's the first time his finger has found the right place. He probes deeply and you shiver; your body tenses; but 
+he's gentle like he promised he'd be. He looks deeply within your eyes and tells you to trust him-- he's done this many times before. His cool 
+smile relaxes you and you open wider to give him more room for an ease entrance. You begin to plead and beg him to hurry, but he slowly takes his time, wanting to cause you as little pain as possible. 
 
-Timmy said, 'I learned that he threw the money changers out of the temple.'
+As he presses closer, going deeper, you feel the tissue give way; pain surges throughout your body and you feel the slight trickle of blood as he continues. He looks at you concerned and asks you if it's too painful. Your eyes are filled with tears but you shake you head and nod for him to go on. He begins moving in and out with skill but you are 
+now too numb to feel him within you. After a few frenzied moments, you feel something bursting within you and he pulls it out of you, you lay panting, glad to have it over. He looks at you and smiling warmly, tells you, with a chuckle; that you have been his most stubborn yet most rewarding experience.
 
-'What about you, Johnny? What did you learn?' the teacher asked.
+You smile and thank your dentist. After all, it was your first time to have a tooth pulled.
 
-'He has a pick-up truck and he doesn't know how to drive,' replied Little Johnny.
-
-Curious, the teacher asked, 'And where did you learn that, Johnny?'
-
-'I learned it from Daddy,' Little Johnny explained. 'When we were driving down the highway, a pick-up truck cut right in front of us and Daddy shouted, 'Jesus Christ! Why don't you learn how to drive!'
+Naughty, Naughty! What were you thinkin'? PERVERT I know what you were thinking!
 
