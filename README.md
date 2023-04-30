@@ -1,9 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Clever Little Chicken
+Tiger Woods
 
-What did the chicken say to the bully?
+What is the difference between Tiger Woods and Santa Claus?
 
-
-Why don't you peck on someone your own size?
+Santa only has three Ho's.
 
