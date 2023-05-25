@@ -1,8 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Just Posing a Question...
+Funny Sign
 
-Ever walk into a room and forget what you came in for?
-
-Well, that's probably how dogs spend most of their lives...
+An actual sign outside a house:
+The dog is okay. Beware of the owner
 
