@@ -1,8 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Cheap Mistress
+In and Out
 
-There was once a wife so jealous that when her husband came home one night and she couldn't find hairs on his jackets she yelled at him, 'Great, so now you're cheating on me with a bald woman!' 
+Mama Skunk had two children named In and Out.
 
-The next night, when she didn't smell any perfume, she yelled again by saying, 'She's not only bald, but she's too cheap to buy any perfume!'
+The two were always on the go, but rarely in one place at the same time.  Whenever In was in, Out was out.  Whenever In was out, Out was in.
+
+One day at dinner time, Out was home, but In was no where to be seen.  Mama Skunk sent Out out to bring In in for dinner.  Out quickly returned with In and Mama was amazed.
+
+'However did you find In so quickly in all the vast forest?' asked Mama.
+
+'Easy,' said Out.  'Instinct!'
 
