@@ -1,14 +1,54 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-In and Out
+Rearranging Letters
 
-Mama Skunk had two children named In and Out.
+DORMITORY: 
+When you rearrange the letters: 
+DIRTY ROOM 
 
-The two were always on the go, but rarely in one place at the same time.  Whenever In was in, Out was out.  Whenever In was out, Out was in.
+PRESBYTERIAN: 
+When you rearrange the letters: 
+BEST IN PRAYER 
 
-One day at dinner time, Out was home, but In was no where to be seen.  Mama Skunk sent Out out to bring In in for dinner.  Out quickly returned with In and Mama was amazed.
+ASTRONOMER: 
+When you rearrange the letters: 
+MOON STARER 
 
-'However did you find In so quickly in all the vast forest?' asked Mama.
+DESPERATION: 
+When you rearrange the letters: 
+A ROPE ENDS IT 
 
-'Easy,' said Out.  'Instinct!'
+THE EYES: 
+When you rearrange the letters: 
+THEY SEE 
+
+SLOT MACHINES: 
+When you rearrange the letters: 
+CASH LOST IN ME 
+
+ANIMOSITY: 
+When you rearrange the letters: 
+IS NO AMITY 
+
+ELECTION RESULTS: 
+When you rearrange the letters: 
+LIES - LET'S RECOUNT
+ 
+ELEVEN PLUS TWO: 
+When you rearrange the letters: 
+TWELVE PLUS ONE
+
+SNOOZE ALARMS: 
+When you rearrange the letters: 
+ALAS! NO MORE Z 'S 
+
+A DECIMAL POINT: 
+When you rearrange the letters: 
+IM A DOT IN PLACE 
+
+AND FINALLY...
+
+MOTHER-IN-LAW: 
+When you rearrange the letters: 
+WOMAN HITLER
 
