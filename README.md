@@ -1,54 +1,24 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Rearranging Letters
+Looking For Daddy
 
-DORMITORY: 
-When you rearrange the letters: 
-DIRTY ROOM 
-
-PRESBYTERIAN: 
-When you rearrange the letters: 
-BEST IN PRAYER 
-
-ASTRONOMER: 
-When you rearrange the letters: 
-MOON STARER 
-
-DESPERATION: 
-When you rearrange the letters: 
-A ROPE ENDS IT 
-
-THE EYES: 
-When you rearrange the letters: 
-THEY SEE 
-
-SLOT MACHINES: 
-When you rearrange the letters: 
-CASH LOST IN ME 
-
-ANIMOSITY: 
-When you rearrange the letters: 
-IS NO AMITY 
-
-ELECTION RESULTS: 
-When you rearrange the letters: 
-LIES - LET'S RECOUNT
+A man told the ringmaster that he was interested in joining the circus as a lion tamer. The ringmaster asked if he had any experience.
  
-ELEVEN PLUS TWO: 
-When you rearrange the letters: 
-TWELVE PLUS ONE
-
-SNOOZE ALARMS: 
-When you rearrange the letters: 
-ALAS! NO MORE Z 'S 
-
-A DECIMAL POINT: 
-When you rearrange the letters: 
-IM A DOT IN PLACE 
-
-AND FINALLY...
-
-MOTHER-IN-LAW: 
-When you rearrange the letters: 
-WOMAN HITLER
+The man said, 'Why, yes. My father was one of the most famous lion tamers in the world, and he taught me everything he knew.'
+ 
+'Really?' said the ringmaster. 'Did he teach you how to make a lion jump through a flaming hoop?'
+ 
+'Yes he did,' the man replied.
+ 
+'And did he teach you how to have six lions form a pyramid?'
+ 
+'Yes he did,' the man replied.
+ 
+'And have you ever stuck your head in a lion's mouth?'
+ 
+'Just once,' the man replied.
+ 
+The ringmaster asked, 'Why only once?'
+ 
+The man said, 'I was looking for my father.'
 
