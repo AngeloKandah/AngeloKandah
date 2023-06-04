@@ -1,6 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-A Day Out at the Zoo.
+Big, Grey, Quarts
 
-The other day I went to a zoo, but the only animal there was a dog. It was a shihtzu.
+Q: What is big and grey and comes in quarts? 
+A: An elephant.
 
