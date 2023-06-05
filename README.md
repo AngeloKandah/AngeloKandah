@@ -1,7 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Big, Grey, Quarts
+Base Stealer
 
-Q: What is big and grey and comes in quarts? 
-A: An elephant.
+Why were the police at the baseball game? 
+
+Because someone stole second base!
 
