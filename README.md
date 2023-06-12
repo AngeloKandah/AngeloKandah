@@ -1,12 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Ole and Lars
+Blond Jokes
 
-Ole and Lars were on their very first train ride. They had brought along bananas for lunch. Just as they began to peel them, the train entered a long, dark tunnel. 
-
-'Have you eaten your banana yet?' Ole asked excitedly 
-
-'No,' replied Lars. 
-
-'Vell, don't touch it den,' Ole exclaimed. 'I yust took vun bite and vent blind!'
+Did you hear about the blonde that...
+Couldn't learn to water ski because she couldn't find a lake with a slope.
+Got excited because she finished a jigsaw puzzle in 6 months and the box said '2 to 4 years'
+Couldn't call 911 because there was no 11 on any phone button.
+When asked what the capital of California was; answered 'C'.
+Baked a turkey for 3 days because the instructions said 1 hour per pound and she weighed 125.
+After losing in a breaststroke swimming competition, complained that the other swimmers were using their arms.
 
