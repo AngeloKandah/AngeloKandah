@@ -1,6 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Muffins
+Do You...
 
-If you think about it, a muffin is just a bald cupcake!
+DOCTOR: 'Do you smoke or drink?'
+
+PATIENT:  'I didn't know I had a choice.'
 
