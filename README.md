@@ -1,7 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-One-Armed Blonde
+Another Blonde Quiz
 
-How do you get a one-armed blonde out of a tree? 
-Wave!
+1. If you had a $25 bill, what would you do with it?
+
+2. How many tomatoes grow on a tree?
+
+3. How many animals did Moses take on the ark?
 
