@@ -1,10 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-FORWARD
+Begging
 
-Can you decipher this phrase?
+LADY TO BEGGAR- Why don't you get a job?
 
-FORWARD
+BEGGAR- Actually, I'm an author.  I once wrote a book entitled 'One Hundred Ways to Make Money.'
 
-Straightforward!
+LADY- Well then why are you begging?
+
+BEGGAR- It's one of my ways...
 
