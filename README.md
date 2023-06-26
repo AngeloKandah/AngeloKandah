@@ -1,7 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Lesbian
+Two Cows
 
-One lesbian said to the other, 'I'll just be Frank with you,'
-...and the other said, 'Ok, you be Frank today and I'll be Frank tommorrow.'
+Two cows were in a field grazing.
+First cow says, 'MOO.'
+Second cow says, 'You asshole, I was gonna say that.'
 
