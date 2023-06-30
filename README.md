@@ -1,8 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Huh...
+Smoking
 
-It's okay to kiss a fool,
-and it's also okay to let a fool kiss you.
-But NEVER let a kiss fool you!
+Mom: 'Why have you been sent home early, Jack?'
+
+Jack: 'Because the boy next to me was smoking.'
+
+Mom: 'But if he was smoking, why were you sent home?'
+
+Jack: 'Because I set him on fire!'
 
