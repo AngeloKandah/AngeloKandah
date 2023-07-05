@@ -1,6 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Yo Momma's So Hairy...
+Yo Momma
 
-Yo momma is so hairy that I thought she had herself in a headlock!
+Who is Yo Momma? 
+
+Yo Momma doesn't know.
 
