@@ -1,11 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Day And Night
+THE LORD IS MY SHEPHERD
 
-I was working in a scrap yard during summer vacation at an engineering university. I used to work repairing construction equipment.
-One afternoon, I was taking apart a piling hammer that had some very large bolts holding it together. One of the nuts had corroded on to the bolt; to free it, I started heating the nut with an oxy-acetylene torch.
-As I was doing this, one of the dimmest apprentices I have ever known came along. He asked me what I was doing. I patiently explained that if I heated the nut, it would grow larger and release its grip on the bolt so I could then remove it.
-'So things get larger when they get hot, do they?' he asked.
-Suddenly, an idea flashed into my mind (I know not from where.) 'Yes,' I said, 'that's why days are longer in summer and shorter in winter.'
-There was a long pause, then his face cleared and he said, 'You know, I always wondered about that.'
+A Sunday School teacher decided to have her young class memorize one of the most quoted passages in the Bible: Psalm 23. She gave the youngsters a month to learn the verse. 
+
+Little Bobby was excited about the task, but he just couldn't remember the Psalm. After much practice, he could barely get past the first line. 
+
+On the day that the kids were scheduled to recite Psalm 23 in front of the congregation, Bobby was so nervous. When it was his turn, he stepped up to the microphone and said proudly, 'The Lord is my shepherd and that's all I need to know.'
 
