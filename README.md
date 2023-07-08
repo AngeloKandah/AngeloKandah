@@ -1,10 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-THE LORD IS MY SHEPHERD
+Favorite Child
 
-A Sunday School teacher decided to have her young class memorize one of the most quoted passages in the Bible: Psalm 23. She gave the youngsters a month to learn the verse. 
-
-Little Bobby was excited about the task, but he just couldn't remember the Psalm. After much practice, he could barely get past the first line. 
-
-On the day that the kids were scheduled to recite Psalm 23 in front of the congregation, Bobby was so nervous. When it was his turn, he stepped up to the microphone and said proudly, 'The Lord is my shepherd and that's all I need to know.'
+In the event of a sudden loss of cabin pressure, masks will descend from the ceiling. Stop screaming, grab the mask, and pull it over your face. If you have a small child traveling with you, secure your mask before assisting with theirs. If you are traveling with more than one small child, pick your favorite.
 
