@@ -1,6 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-So Poor
+E.T
 
-Yo momma so poor, she cleans her shoes with a pencil.
+E.T phone home! 
+
+That must be one hell of a phone bill
 
