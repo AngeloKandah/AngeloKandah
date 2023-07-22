@@ -1,6 +1,23 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Dog Ugly
+Bubblegum
 
-Yo Mama was so Ugly as a child your granddaddy had to put a pork chop round her neck so the dog would play with her.
+Why did the bubblegum cross the road?
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Because he was stuck to the chickens leg.
 
