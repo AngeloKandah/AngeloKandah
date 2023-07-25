@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Funny, Sorta
+Clear
 
-IF I LOST A DOLLAR FOR EVERY BRAIN YOU HAVE, I WOULD BE IN DEBT
+Yo Mama so dumb, her favorite color is clear.
 
