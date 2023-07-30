@@ -1,13 +1,16 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-When You Care Enough...
+Win a ...
 
-A new business was opening and one of the owner's friends wanted to send flowers for the occasion.
+This blonde goes into a restaurant and notices there's a 'peel and win' sticker on her coffee cup. So, she peels it off and starts screaming, 'I've won a motor home! I've won a motor home!'
 
-They arrived at the new business site and the owner read the card; it said 'Rest in Peace'.
+The waitress says, 'That's impossible. The biggest prize is a mini-van.'
 
-When the friend found out, she became angry and called the florist to complain. After she had told the florist of the obvious mistake and how angry she was, the florist said.
+But the blonde keeps screaming, 'I've won a motor home!  I've won a motor home.'
 
-'Madam, I'm really sorry for the mistake, but rather than getting angry you should imagine this: somewhere there is a funeral taking place today, and they have flowers with a note saying,
-'Congratulations on your new location'.
+Finally, the manager comes over and says, 'Ma'am, I'm sorry, but you're mistaken. You couldn't possibly have won a motor home, because we didn't have that as a prize!'
+
+The blonde says, 'No, it's not a mistake. I've won a motor home!'
+
+So, she hands the ticket to the manager and he reads, 'WIN A BAGEL'.
 
