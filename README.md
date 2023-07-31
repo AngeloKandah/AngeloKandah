@@ -1,16 +1,18 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Win a ...
+Happy Valentines Day
 
-This blonde goes into a restaurant and notices there's a 'peel and win' sticker on her coffee cup. So, she peels it off and starts screaming, 'I've won a motor home! I've won a motor home!'
+Little Melissa comes home from first grade and tells her father that they learned about the history of Valentine's Day. 'Since Valentine's Day is for a Christian saint and we're Jewish,' she asks, 'will God get mad at me for giving someone a valentine?'
 
-The waitress says, 'That's impossible. The biggest prize is a mini-van.'
+Melissa's father thinks a bit, then says 'No, I don't think God would get mad. Who do you want to give a valentine to?'
 
-But the blonde keeps screaming, 'I've won a motor home!  I've won a motor home.'
+'Osama Bin Laden,' she says.
 
-Finally, the manager comes over and says, 'Ma'am, I'm sorry, but you're mistaken. You couldn't possibly have won a motor home, because we didn't have that as a prize!'
+'Why Osama Bin Laden?' her father asks in shock.
 
-The blonde says, 'No, it's not a mistake. I've won a motor home!'
+'Well,' she says, 'I thought that if a little American Jewish girl could have enough love to give Osama a valentine, he might start to think that maybe we're not all bad, and maybe start loving people a little bit. And if other kids saw what I did and sent valentines to Osama, he'd love everyone a lot. And then he'd start going all over the place to tell everyone how much he loved them and how he didn't hate anyone anymore.! '
 
-So, she hands the ticket to the manager and he reads, 'WIN A BAGEL'.
+Her father's heart swells and he looks at his daughter with newfound pride. 'Melissa, that's the most wonderful thing I've ever heard.'
+
+'I know,' Melissa says, 'and once that gets him out in the open, the Marines could blow the shit out of him.'
 
