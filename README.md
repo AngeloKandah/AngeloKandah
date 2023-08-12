@@ -1,7 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Moon Walk
+Jesus
 
-Q: How does a blonde moon walk?
-A: She pulls down her panties and slides her ass along the floor!
+How do we know that Christ was Irish?
+
+Because he was 33; still lived at home; thought his mother was a virgin, and she thought he was the son of God.
 
