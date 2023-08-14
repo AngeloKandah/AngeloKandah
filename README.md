@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Jesus
+Grand Job(!)
 
-How do we know that Christ was Irish?
+'They're multipurpose. Not only do they put the clips on, but they take them off.'
 
-Because he was 33; still lived at home; thought his mother was a virgin, and she thought he was the son of God.
+- Pratt JOKE Whitney spokesperson explaining why the company charged the Air Force nearly $1000 for an ordinary pair of pliers.
 
