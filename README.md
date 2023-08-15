@@ -1,8 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Grand Job(!)
+The Best Present
 
-'They're multipurpose. Not only do they put the clips on, but they take them off.'
+Little Tommy was telling his friend Billy all about his Christmas presents.
 
-- Pratt JOKE Whitney spokesperson explaining why the company charged the Air Force nearly $1000 for an ordinary pair of pliers.
+'My daddy bought me a mouth organ. It's the best present I've ever had.'
+
+'Why?'
+
+'Because my mummy gives me extra money every week if I don't play it.'
 
