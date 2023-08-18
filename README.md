@@ -1,14 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-60 Divided By 1/3rd
+Fire-arms
 
-What is 60 divided by 1/3rd? 
-
-Read carefully. 
-
-If you think it's 180, then you're wrong! The answer is 20.
-
-3rd is 1/3.
-1/3rd is 1/(1/3), and therefore 3.
-60 divided by 3 is 20.
+The other day I was watching the news and there was the strangest story. You see a man went to Huck's gas station and was filling up his red gas holder for emergencies during the winter, and when he put the cap on some sloshed out onto his arm. He didn't think anything of it and went on ahead and got in his car and drove off. Two miles down the road he lit up a cigarette and caught his arms on hands on fire! He pulled off to the side and a cop driving by pulled over by him. And you know what he gave the man a ticket... for illegal use of fire-arms.
 
