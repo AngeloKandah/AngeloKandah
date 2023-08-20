@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Personal Ad.
+Hotdog Wins!!!!
 
-Hopeless Romantic.
+What does the hot dog say after winning a race?
 
-Seeking: Filthy Whore
+I'm a WIENER!!!
 
