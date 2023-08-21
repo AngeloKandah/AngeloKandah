@@ -1,8 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Hotdog Wins!!!!
+Flight 2341
 
-What does the hot dog say after winning a race?
+'Flight 2341, for noise abatement, turn right 45 degrees.'
 
-I'm a WIENER!!!
+'But Center, we are at 35,000 feet. How much noise can we make up here?'
+
+'Sir, have you ever heard the noise a 747 makes when it hits a 727?'
 
