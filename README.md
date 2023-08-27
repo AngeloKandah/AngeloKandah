@@ -1,8 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Mexican
+Les ChÃ¨res
 
-What's a Mexican called when he's covered in dirt?
-
-A churro
+Les chÃ¨res lÃ©chÃ¨rent les chairs.
 
