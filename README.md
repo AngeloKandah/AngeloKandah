@@ -1,18 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Letter to God
+Not So Horny
 
-Chucky wanted $100 to buy a remote control car, so he prayed like crazy for two weeks ... but nothing happened.
+An elderly couple (BATTERY AND BOODLER) was attending mass.
 
-Chucky decided to write God an urgent letter, requesting $100. When the post office received the letter addressed to God, USA, they forwarded the letter to the president.
+About halfway through, BOODLER leans over and says to BATTERY, 'I just let out a silent fart; what do you think I should do?'
 
-The president was so amused by the letter that he told his secretary to send Chucky a $5 bill, figuring this would appear to be a lot of money to a little boy.
-
-When Chucky received the cash, he was so delighted that he wrote a thank you note which read: 
-
-Dear God: 
-Thank you very much for sending the money. However, I noticed that you sent it through Washington, D.C. Next time, don't do that because, as usual, those jerks took 95%.
-Love, 
-
-Chucky
+BATTERY replied, 'That was sexy. Put a new battery in your vibrator; then let's go home and fuck our brains out.'
 
