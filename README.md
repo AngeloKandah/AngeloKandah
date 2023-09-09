@@ -1,16 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Bottomless Hole
+BrainTracker Grid
 
-Two guys are walking down a road when they come across a deep hole beside it. Being curious, they go over and check it out. When they look down, they are surprised to find they can't see the bottom. So they drop a couple of rocks down the hole and listen... Nothing. One of them says, 'Man, that's a deep hole!' 
+Using the BrainTracker grid below, how many words can you find? Each word must contain the central W and no letter can be used twice, however, the letters do not have to be connected. Proper nouns are not allowed, however, plurals are. There is at least one nine letter word. Excellent: 23 words. Good: 18 words. Average: 15 words. 
 
-Thinking they might hear something larger hit the bottom, they find a big, old cinder block and pitch it over the side. They pause and listen intently... They hear a sound, but it is coming from behind them! They quickly turn around to see a goat bearing down on them with its head lowered, flying along, its feet barely touching the ground, its moving so fast! 
+Common words: low, lower, lowlier, owe, owl, pew, pillow, power, prow, prowl, row, we, weir, well, will, willow, WILLPOWER, wipe, wiper, wire, woe, wore, wow.
 
-The two men dive out of its way just in time and the goat plunges past them, into the seemingly bottomless hole, to its doom. The two look at each other and say, 'Boy that was close! We'd better get away from this thing before we end up with the goat!'
-
-So they continue on their way down the road until they happen across this farmer working near it. The men again put their heads together and figure that the goat belongs to the farmer and the decide to tell him what happened. 
-
-'Hey Mr. Farmer. Do you happen to own a goat?', one of the men asked. The farmer replies, 'Yeah, why do you ask?' The men then tell what happened at the hole and how they narrowly avoided death in the hole from the speeding goat. 
-
-The farmer said, 'Well boys, I don't think that was my goat. You see, my goat was really old and crippled up with arthritis. There is no way he could have been moving that fast. Besides, I had him tied to this big, old cinder block.'
+All words: low, lowe, lower, lowlier, lwei, ow, owe, owl, pew, pillow, plew, plow, plower, pow, power, prow, prowl, row, rowel, we, weir, well, wile, will, willer, willow, willower, WILLPOWER, wipe, wiper, wire, wo, woe, wore, wow.
 
