@@ -1,14 +1,13 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Blond Mother
+Need More Excercise
 
-There are three moms. .
+A 75-year-old woman went to the doctor for a check up. The doctor told her she needed more cardiovascular activity, and recommended that she engage in sexual activity three times a week. A bit embarrassed, she said to the doctor, 'Please tell my
+husband.'
 
-A Brunette, a Redhead, and a Blonde.
+The doctor went out into the waiting room and told the husband that his wife needed sex three times a week. The 80-year-old husband replied, 'Which days?'
 
-They were all talking one day and the brunette says 'Oh my gosh y'all I went through my daughter's purse the other day to get some gum, and I found an ounce of weed. I can't believe she smokes weed'
+The doctor answered, 'Monday, Wednesday, and Friday would be ideal.
 
-They comfort her, and the redhead says 'Yeah, well I found a fake I. D. In my daughter's purse. I can't believe she has one'. So they all comfort her.
-
-Then the blonde says 'That's nothing. I found a condom in my daughter's purse. I just cannot believe she has a penis'
+The husband said, 'I can bring her on Monday and Wednesday, but on Fridays, she'll have to take the bus.'
 
