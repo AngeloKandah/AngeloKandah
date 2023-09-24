@@ -1,12 +1,16 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Computer Power
+Selective Hearing
 
-The businessman dragged himself home and barely made it to his chair before he dropped, exhausted. 
+What a woman says:
 
-His sympathetic wife was right there with a tall cool drink and a comforting word. 
+This place is a mess! C'mon! You and I need to clean up!
+Your stuff is lying on the floor and you'll have no clothes
+to wear if we don't do laundry right now!
 
-'My, you look tired,' she said. 'You must have had a hard day today. What happened to make you so exhausted?' 
+What a man hears:
 
-'It was terrible,' her husband said, 'The computer broke down and all of us had to do our own thinking.'
+blah,blah,blah,blah, C'MON, blah,blah,blah,blah, YOU AND I
+blah, blah,blah,blah, ON THE FLOOR blah,blah,blah,blah,
+NO CLOTHES blah,blah,blah,blah, RIGHT NOW!
 
