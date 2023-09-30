@@ -1,18 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Phone Conversation
+Why Mexicans Lost Their Jobs.
 
-Sam:  'Cas, phone for you!'
-
-Cas:  'Okay, thanks, Sam.'  --BEEP OF PHONE BEING TURNED ON--  'Hello?  Oh, hi....'
-
---AFTER PHONE CONVERSATION--
-
-Sam:  'So, who was it?'
-
-Cas:  'Heather.'
-
-Sam:  'What did she want?'
-
-Cas:  'Our phone number.'
+Because Lexus created the park it your self car many Mexicans lost their jobs.
 
