@@ -1,7 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Fighting for Peace...
+Kid Vs. Old
 
-Fighting for peace is like
-screwing for virginity.
+if stealing kids is kidnapping,is stealing adults oldnapping?
 
