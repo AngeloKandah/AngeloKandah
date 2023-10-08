@@ -1,18 +1,19 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Holy . . . !
+TOP 10 SLOGANS...
 
-Four Catholic men and a Catholic woman were having coffee.
+TOP 10 SLOGANS BEING CONSIDERED BY VIAGRA
 
-The first Catholic man tells his friends, 'My son is a priest, when he walks into a room, everyone calls him 'Father'.'
+ 10. Viagra, It's 'Whaazzzzz Up!'
+ 9. Viagra, The quicker pecker upper
+ 8. Viagra, Like a rock!
+ 7. Viagra, When it absolutely, positively has to be there tonight.
+ 6. Viagra, Be all that you can be.
+ 5. Viagra, Reach out and touch someone.
+ 4. Viagra, Strong enough for a man, but made for a woman!
+ 3. Viagra, Tastes great!......... More filling!
+ 2. Viagra, We bring good things to life!
 
-The second Catholic man chirps, 'My son is a Bishop. When he walks into a room people call him 'Your Grace'.'
-
-The third Catholic gent says, 'My son is a Cardinal . . . When he enters a room everyone says 'Your Eminence'.'
-
-The fourth Catholic man then says, 'My son is the Pope. When he walks into a room people call him 'Your Holiness'.'
-
-Since the lone Catholic woman was sipping her coffee in silence, the four men give her a subtle, 'Well . . .?'
-
-She proudly replies, 'I have a daughter, slim, tall, 38D breast, 24' waist and 34' hips. When she walks into a room, people say, 'Oh My God.''
+ And the number one slogan, being considered by Viagra:
+ 1. This is your penis.........This is your penis on drugs.
 
