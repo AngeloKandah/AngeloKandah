@@ -1,19 +1,17 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-TOP 10 SLOGANS...
+Oklahoma
 
-TOP 10 SLOGANS BEING CONSIDERED BY VIAGRA
+At a southern university, students in the psychology program were attending their first class on emotional extremes. 
+'Just to establish some parameters,' said the professor to the student from Arkansas, 'what is the opposite of joy?' 
 
- 10. Viagra, It's 'Whaazzzzz Up!'
- 9. Viagra, The quicker pecker upper
- 8. Viagra, Like a rock!
- 7. Viagra, When it absolutely, positively has to be there tonight.
- 6. Viagra, Be all that you can be.
- 5. Viagra, Reach out and touch someone.
- 4. Viagra, Strong enough for a man, but made for a woman!
- 3. Viagra, Tastes great!......... More filling!
- 2. Viagra, We bring good things to life!
+'Sadness,' said the student. 
 
- And the number one slogan, being considered by Viagra:
- 1. This is your penis.........This is your penis on drugs.
+'And the opposite of depression?' he asked of the young lady from Oklahoma. 
+
+'Elation,' she said. 
+
+'And you sir,' he said to the young man from Texas, 'what about the opposite of woe?' 
+
+The Texan replied, 'Sir, I believe that would be'giddy up' '.
 
