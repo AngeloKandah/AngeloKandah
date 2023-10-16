@@ -1,28 +1,30 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-How Old Are You?
+What Else?
 
-A little girl and her mother were out and about when, out of the blue, the girl asked her mother, 'Mommy, How old are you?' 
-The mother responded, 'Honey, women don't talk about their age. You'll learn this as you get older.' 
+These are some real people's names, and what they grew up to be. They are all true:
 
-The girl then asked, 'Mommy, how much do you weigh?' 
-Her mother responded again, 'That's another thing women don't talk about. You'll learn this, too, as you grow up.' 
+1.) Iccolo Miccolo played the piccolo for the Los Angeles Philharmonic Orchestra.
 
-The girl, still wanting to know about her mother, then fired off another question, 'Mommy, why did you and Daddy get a divorce?' 
+2.) H.M. Balmer was a funeral director in Fort Collins, Colorado.
 
-The mother, a little annoyed by the questions, responded, 'Honey, that is a subject that hurts me very much, and I don't want to talk about it now.' 
+3.) Miss Birdie Snyder married C. Canary and became Birdie Canary.
 
-The little girl, frustrated, sulked until she was dropped off at a friend's house to play. She consulted with her girlfriend about her and her mother's conversation. 
+4.) Perhaps it was best to ignore the orders of Dr. Besick, a doctor in Chicago, Illinois.
 
-The girlfriend said, 'All you have to do is sneak a look at your mother's driver's license. It's just a like a report card from school. It tells you everything.' 
+5.) The Clipper brothers worked as barbers in Bakersfield, California.
 
-Later, the little girl and her mother were out and about again. 
-The little girl started off with, 'Mommy, Mommy, I know how old you are, I know how old you are. You're 32 years old.' 
-The mother was very shocked. She asked, 'Sweetheart, how do you know that?' 
+6.) Mr. Thrift of Keepit, Australia, won the $30,000 first prize in a lottery.
 
-The little girl shrugged and said, 'I just know. And I know how much you weigh. You weigh 130 pounds.' 
+7.) D. Sharp was a radio tenor.
 
-'Where did you learn that?' 
+8.) Dr. H.A. Toothacre worked as dentist for the Burlington, Iowa, Independent School District.
 
-The little girl said, 'I just know. And I know why you and Daddy got a divorce. You got an 'F' in sex.'
+9.) B.F. Parsons was a parson who lived in the parsonage on Parson Street in Sarna, Michigan.
+
+10.) Greg Lawless was a police officer.
+
+And Finally...
+
+11.) A.C. Current was an electrical contractor in Tontogany, Ohio.  His son's name? D.C. Current.
 
