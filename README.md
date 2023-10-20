@@ -1,18 +1,13 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Accidents
+LASE
 
-The cowboy was trying to buy a health insurance policy. The insurance agent was going down the list of standard questions. 
+Can You Decipher This Phrase?
 
-'Ever have an accident?' 
+LASE 
 
-'Nope, nary a one.' 
+There are two possible answers. 
 
-'None? You've never had any accidents.' 
-
-'Nope. Ain't never had one. Never.' 
-
-'Well, you said on this form you were bit by a snake once. Wouldn't you consider that an accident?' 
-
-'Heck, no. That dang varmint bit me on purpose.'
+Argon laser: the 'R' has gone.
+Or, jumble sale: the letters of sale are jumbled.
 
