@@ -1,11 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Blow Job
+Last Thing
 
-Q.   What's the best thing about a blow job ?   
+What was the last thing that Abraham Lincoln did?
 
-
-
- 
-A.  Ten minutes of silence.
+He died.
 
