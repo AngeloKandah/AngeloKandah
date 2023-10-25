@@ -1,26 +1,16 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-For Crying Out Loud
+Three Flat Tires
 
-With all the new technology regarding fertility, an 88-year-old woman was able to give birth to a baby recently. 
+A trucker came into a truck stop cafe and placed his order. He said, 'I want three flat tires, a pair of headlights and a pair of running boards.'
 
-When she was discharged from the hospital and went home, various relatives came to visit. 'May we see the new baby?' one of them asked. 
+The brand new blonde waitress, not wanting to appear stupid, went to the kitchen and said to the cook, 'This guy out there just ordered three flat tires, a pair of headlights and a pair of running boards. What does he think this place is, an auto parts store?'
 
-'Not yet,' said the mother. 'I'll make coffee and we can visit for a while first.' 
+'No,' the cook said. 'Three flat tires mean three pancakes, a pair of headlights is two eggs sunny side up, and running boards are 2 slices of crisp bacon.'
 
-Another half hour passed before another relative asked, 'May we see the new baby now?' 
+'Oh, OK!' said the blonde. She thought about it for a moment and then spooned up a bowl of beans and gave it to the customer.
 
-'No, not yet,' said the mother. 
+The trucker asked, 'What are the beans for, Blondie?'
 
-A while later and again the guests asked, 'May we see the baby now?' 
-
-'No, not yet,' replied the mother. 
-
-Growing impatient, they asked, 'Well, when can we see the baby?' 
-
-'When she cries!' she told them. 
-
-'When she cries?' they gasped. 'Why do we have to wait until she cries?' 
-
-'Because, I forgot where I put her.'
+She replied, 'I thought while you were waiting for the flat tires, headlights and running boards, you might as well gas up!'
 
