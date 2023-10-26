@@ -1,16 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Three Flat Tires
+Little Girl
 
-A trucker came into a truck stop cafe and placed his order. He said, 'I want three flat tires, a pair of headlights and a pair of running boards.'
+A little girl learned in school, that instead of words, pictures and symbols would be drawn to indicate something if words weren't understood.
 
-The brand new blonde waitress, not wanting to appear stupid, went to the kitchen and said to the cook, 'This guy out there just ordered three flat tires, a pair of headlights and a pair of running boards. What does he think this place is, an auto parts store?'
-
-'No,' the cook said. 'Three flat tires mean three pancakes, a pair of headlights is two eggs sunny side up, and running boards are 2 slices of crisp bacon.'
-
-'Oh, OK!' said the blonde. She thought about it for a moment and then spooned up a bowl of beans and gave it to the customer.
-
-The trucker asked, 'What are the beans for, Blondie?'
-
-She replied, 'I thought while you were waiting for the flat tires, headlights and running boards, you might as well gas up!'
+Later that day, she needed to go into the bathroom, looked at two pictures, and went in one.  A teacher asked her, 'Why did you go into the boys' bathroom?'  She answered, 'The picture showed a person wearing pants, and I'm wearing pants.  The other picture showed someone wearing a dress, and I'm not.'
 
