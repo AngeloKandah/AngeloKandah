@@ -1,8 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Walks Into a Bar
+Doing the Splits
 
-A man walks into a bar. He falls down, unconscious. Why is this?
+An English professor complained to the pet shop proprietor, 'The parrot I purchased uses improper language.'
 
-Because the man walked into a solid bar. A solid, metal bar!
+'I'm surprised,' said the owner. 'I've not taught that bird to swear.'
+
+'Oh, it isn't that,' explained the professor, 'but yesterday I heard him split an infinitive.'
 
