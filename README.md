@@ -1,6 +1,9 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-THE IRS
+Rhyme
 
-When you put 'THE' and 'IRS' together, it's an anagram of 'THEIRS'. Coincidence? I think not!
+Roses are red,
+Grass is green.
+You have the shape
+Of a washing machine.
 
