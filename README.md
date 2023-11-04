@@ -1,9 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Rhyme
+Egg Fun
 
-Roses are red,
-Grass is green.
-You have the shape
-Of a washing machine.
+What did the lunch lady say to the boiled egg?
+
+You're in hot water now!!!
 
