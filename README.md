@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Egg Fun
+Do You Know Why...
 
-What did the lunch lady say to the boiled egg?
+Q: Do you know why doctors slap babies on the butt after they are born?
 
-You're in hot water now!!!
+A: It knocks the penises off of the dumb ones.
 
