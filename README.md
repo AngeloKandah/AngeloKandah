@@ -1,11 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Ocelot?
+Horse's Favourite
 
-How do you titillate an ocelot?
+What is a horse's favourite Shakepearean play?
 
-
-
-
-Oscillate its tit a lot!
+Rodeo and Juliet
 
