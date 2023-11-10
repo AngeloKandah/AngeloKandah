@@ -1,8 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Horse's Favourite
+Yo Mama is So Fat
 
-What is a horse's favourite Shakepearean play?
-
-Rodeo and Juliet
+Yo mama is so fat she has to get baptized in Sea World.
 
