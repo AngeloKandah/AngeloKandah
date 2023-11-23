@@ -1,16 +1,13 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Mary Lou
+Jewish, Too!
 
-One day a man was sitting in his favorite chair watching football when his wife walked up behind him and knocked him over the head with a frying pan.
-When he woke he asked, 'What the hell was that for?!?'
-'I found this piece of paper in your pants while I was doing your laundry and it says Mary Lou 555-5555. Who the hell is Mary Lou?!?' she asks.
-'Aww honey, that's the name of the horse I was bettin' on last week!'
-'Oh I'm so sorry honey!'
+A young gay man calls home and tells his Jewish mother that he has decided to go back into the closet because he has met a wonderful girl and they are going to be married. He tells his mother that he is sure she will be happier since he knows that his gay lifestyle has been very disturbing to her. 
+She responds that she is indeed delighted and asks tentatively, 'I suppose it would be too much to hope that she would be Jewish?' 
 
+He tells her that not only is the girl Jewish, but is from a wealthy Beverly Hills family. She admits she is overwhelmed by the news, and asks, 'What is her name?' 
 
-Three weeks later she came behind him and knocked him over the head with a frying pan and once again he woke up asking, 'What the hell did I do this time?!?'
+He answers, 'Monica Lewinsky.' 
 
-
-'Your horse called,' she replied.
+There is a long pause, then his mother asks, 'What happened to that nice Catholic boy you were dating last year?'
 
