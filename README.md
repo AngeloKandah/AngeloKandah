@@ -1,13 +1,22 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Jewish, Too!
+Laws of Computing
 
-A young gay man calls home and tells his Jewish mother that he has decided to go back into the closet because he has met a wonderful girl and they are going to be married. He tells his mother that he is sure she will be happier since he knows that his gay lifestyle has been very disturbing to her. 
-She responds that she is indeed delighted and asks tentatively, 'I suppose it would be too much to hope that she would be Jewish?' 
+When computing, whatever happens, behave as though you meant it to happen.
 
-He tells her that not only is the girl Jewish, but is from a wealthy Beverly Hills family. She admits she is overwhelmed by the news, and asks, 'What is her name?' 
+When you get to the point where you really understand your computer, it's probably obsolete.
 
-He answers, 'Monica Lewinsky.' 
+The first place to look for information is in the section of the manual where you least expect to find it.
 
-There is a long pause, then his mother asks, 'What happened to that nice Catholic boy you were dating last year?'
+When the going gets tough, upgrade.
+
+For every action, there is an equal and opposite malfunction.
+
+He who laughs last probably made a back-up.
+
+A complex system that does not work is invariably found to have evolved from a simpler system that worked just fine.
+
+The number one cause of computer problems is computer solutions.
+
+A computer program will always do what you tell it to do, but rarely what you want to do.
 
