@@ -1,22 +1,20 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Laws of Computing
+Cat Dictionary
 
-When computing, whatever happens, behave as though you meant it to happen.
+A cat's dictionary.
 
-When you get to the point where you really understand your computer, it's probably obsolete.
+Purring: Sound of a cat manufacturing cuteness.
 
-The first place to look for information is in the section of the manual where you least expect to find it.
+Purrverse: Poem about a strange kitty.
 
-When the going gets tough, upgrade.
+Purranoia: The fear that your cat is up to something.
 
-For every action, there is an equal and opposite malfunction.
+Human Being: Automatic door opener for cats.
 
-He who laughs last probably made a back-up.
+Purrpetual: Everlasting love for domesticated felines.
 
-A complex system that does not work is invariably found to have evolved from a simpler system that worked just fine.
+Purrson: A male kitty.
 
-The number one cause of computer problems is computer solutions.
-
-A computer program will always do what you tell it to do, but rarely what you want to do.
+Purrpetual motion: A kitty playing.
 
