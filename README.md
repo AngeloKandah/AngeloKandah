@@ -1,6 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Yo Momma Smells So Bad
+C - D - I - M - L - V - X
 
-Yo Momma smells so bad that she made an onion cry!
+Put the characters C - D - I - M - L - V - X in the right order - but not alphabetical.
+
+I - V - X - L - C - D - M.
+
+Roman numerals.
 
