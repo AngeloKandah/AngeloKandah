@@ -1,10 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-C - D - I - M - L - V - X
+Roses are Red, Violets are Blue...
 
-Put the characters C - D - I - M - L - V - X in the right order - but not alphabetical.
+Roses are red, violets are blue, If I can use technology, why can't you?
 
-I - V - X - L - C - D - M.
+The sky is blue, the grass is green, why is your brain as small as a lima bean?
 
-Roman numerals.
+Your humorous, funny, have OCD, How come you can't use technology without me?
+
+I love you, I love you, I really do, but roses are red and violets are blue.
 
