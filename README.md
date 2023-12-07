@@ -1,14 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Postcard
+Restaurants
 
-'And will there be anything else, sir?' the bellboy asked after setting out an elaborate dinner for two.
+somewhere in Calfornia, USA, there is a man who want to open up a business. So he decided to build a restaurant. On the grand opening day, he put a large sign: 'BEST RESTAURANT IN CALIFORNIA'.
 
-'No, thank you,' the gentleman replied. 'That will be all.'
+And there's another man do the same thing (make a new restaurant) close to the first man. He put a big sign: 'BEST RESTAURANT IN AMERICA'
 
-As the young man turned to leave, he noticed a beautiful satin negligee on the bed. 'Anything for your wife?' he asked.
+There's another man also do the same thing. He's even more arrogant than the first two. He then put a big sign: 'BEST RESTAURANT IN THE WORLD'
 
-'Yeah! That's a good idea,' the fellow said...
-
-'Please bring up a postcard. I'll mail her a note!'
+ANOTHER man decided to do the same thing. But this man is wiser than the first three. So instead of put a bombastic sign, he only put a normal sign in front of his new restaurant: 'Best Restaurant on this road'
 
