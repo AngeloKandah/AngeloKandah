@@ -1,6 +1,17 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-New Military Weapon
+Redneck Special Forces
 
-3 men sell their bodies to science, for an exsperiment on a new military weapon to scare enemy soldiers by turning them into the enemies idea of the most scary, repulsive idea possible temporarily. The first man has his wife looking at him, drinks the chemical, and turns into a half-fish half-octopus with fur. The second guy has his therapist looking at him, and turns into a giant bald hamster with a snake head. The third guy has his girlfriend looking at him, he drinks the chemical. Nothing happens.
+The Pentagon announced today the formation of a new 500 man elite fighting unit called the US Redneck Special Forces (USRSF). These North Carolina, South Carolina, Kentucky, West Virginia, Mississippi, Arkansas, Alabama, Georgia, Texas and Tennessee boys will be dropped into Iraq and have been given the following facts about Terrorists: 
+
+1. The season opened today
+2. There is no limit
+3. They taste just like chicken
+4. They don't like beer, pickups, Harley Davidson's, country music or Jesus
+5. They are DIRECTLY RESPONSIBLE for the death of Dale Earnhardt
+
+
+
+
+This mess in Iraq should be over IN A WEEK
 
