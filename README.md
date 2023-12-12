@@ -1,17 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Redneck Special Forces
+Drunk Juggler
 
-The Pentagon announced today the formation of a new 500 man elite fighting unit called the US Redneck Special Forces (USRSF). These North Carolina, South Carolina, Kentucky, West Virginia, Mississippi, Arkansas, Alabama, Georgia, Texas and Tennessee boys will be dropped into Iraq and have been given the following facts about Terrorists: 
+A juggler who was driving to his next performance was stopped by the police. 'What are those knives doing in your car?' asked the officer. 
 
-1. The season opened today
-2. There is no limit
-3. They taste just like chicken
-4. They don't like beer, pickups, Harley Davidson's, country music or Jesus
-5. They are DIRECTLY RESPONSIBLE for the death of Dale Earnhardt
+'I juggle them in my act.' 
 
+'Oh yeah?' says the cop. 'Let's see you do it.' So the juggler starts tossing and juggling the knives. 
 
-
-
-This mess in Iraq should be over IN A WEEK
+A guy driving by sees this and says, 'Wow, am I glad I quit drinking. Look at the test they're making you do now!'
 
