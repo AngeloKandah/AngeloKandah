@@ -1,12 +1,28 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Drunk Juggler
+Not Emo
 
-A juggler who was driving to his next performance was stopped by the police. 'What are those knives doing in your car?' asked the officer. 
+Chris and his friend Johnathan are standing outside of school one day. Johnathan finds Chris wearing his hair black and slicked down, with a purple stripe, with mascara and nail polish and a Korn t-shirt.
 
-'I juggle them in my act.' 
+Johnathan: So, Chris, what's with the new outfit?
 
-'Oh yeah?' says the cop. 'Let's see you do it.' So the juggler starts tossing and juggling the knives. 
+Chris: I'm Emo.
 
-A guy driving by sees this and says, 'Wow, am I glad I quit drinking. Look at the test they're making you do now!'
+Johnathan: You are not Emo.
+
+Chris: Yeah I am, my life has no meaning and I listen to Korn; I'm extremely Emo. 
+
+Johnathan: Did you watch Family Guy last night?
+
+Chris: Yeah.
+
+Johnathan: ...
+
+Chris: ...OH! Guess I'm not Emo.
+
+Johnathan: Yup.
+
+Chris: Can I still listen to Korn?
+
+Johnathan: Sure.
 
