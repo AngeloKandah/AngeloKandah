@@ -1,28 +1,44 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Not Emo
+Hard Words to Say When Drunk
 
-Chris and his friend Johnathan are standing outside of school one day. Johnathan finds Chris wearing his hair black and slicked down, with a purple stripe, with mascara and nail polish and a Korn t-shirt.
+THINGS THAT  ARE DIFFICULT TO SAY WHEN YOU'RE DRUNK:
 
-Johnathan: So, Chris, what's with the new outfit?
+Indubitably
 
-Chris: I'm Emo.
+Innovative
 
-Johnathan: You are not Emo.
+Preliminary
 
-Chris: Yeah I am, my life has no meaning and I listen to Korn; I'm extremely Emo. 
+Proliferation
 
-Johnathan: Did you watch Family Guy last night?
+Cinnamon
 
-Chris: Yeah.
+THINGS THAT ARE VERY DIFFICULT TO SAY WHEN YOU'RE DRUNK:
 
-Johnathan: ...
+Specificity
 
-Chris: ...OH! Guess I'm not Emo.
+British
 
-Johnathan: Yup.
+Constitution
 
-Chris: Can I still listen to Korn?
+Passive-aggressive  disorder
 
-Johnathan: Sure.
+Loquacious
+
+Tran-substantiate
+
+THINGS THAT ARE DOWNRIGHT IMPOSSIBLE TO SAY WHEN YOU'RE DRUNK:
+
+Thanks, but I  don't want to have sex.
+
+Nope, no  more booze for me.
+
+Sorry, but  you're not really my type.
+
+Good  evening officer isn't it lovely out tonight.
+
+Oh, I just couldn't.
+
+No one wants to hear me sing.
 
