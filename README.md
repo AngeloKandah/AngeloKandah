@@ -1,44 +1,20 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Hard Words to Say When Drunk
+The American Hell
 
-THINGS THAT  ARE DIFFICULT TO SAY WHEN YOU'RE DRUNK:
+An American dies and goes to hell. There he finds that there is a different hell for each country.
 
-Indubitably
+He goes first to the German hell and asks 'What do they do here?'
 
-Innovative
+He is told 'First they put you in an electric chair for an hour. Then they lay you on a bed of nails for another hour. Then the German devil comes in and whips you for the rest of the day.'
 
-Preliminary
+The man does not like the sound of that at all, so he moves on. He checks out the Chinese hell as well as the Russian hell and many more. He discovers that they are all more or less the same as the German hell.
+   
+Then he comes to the American hell and finds that there is a very long line of people waiting to get in. Amazed he asks 'What do they do here?'
 
-Proliferation
+He is told 'First they put you in an electric chair for an hour. Then they lay you on a bed of nails for another hour. Then the American devil comes in and whips you for the rest of the day.'
 
-Cinnamon
+'But  that is exactly the same as all the other hells - why are there so many people waiting to get in?'
 
-THINGS THAT ARE VERY DIFFICULT TO SAY WHEN YOU'RE DRUNK:
-
-Specificity
-
-British
-
-Constitution
-
-Passive-aggressive  disorder
-
-Loquacious
-
-Tran-substantiate
-
-THINGS THAT ARE DOWNRIGHT IMPOSSIBLE TO SAY WHEN YOU'RE DRUNK:
-
-Thanks, but I  don't want to have sex.
-
-Nope, no  more booze for me.
-
-Sorry, but  you're not really my type.
-
-Good  evening officer isn't it lovely out tonight.
-
-Oh, I just couldn't.
-
-No one wants to hear me sing.
+'This is AMERICAN hell, that's why. Maintenance is so bad that the electric chair does not work; someone has stolen all the nails from the bed; and the devil is a former Govt servant, so he comes in, signs the register and then goes to the canteen.'
 
