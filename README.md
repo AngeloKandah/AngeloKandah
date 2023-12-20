@@ -1,18 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Having the Right Relative
+Ice Fishing
 
-A man suffered a serious heart attack and had open heart bypass surgery. He awakened from the surgery to find himself in the care of nuns at a Catholic hospital. As he was recovering, a nun asked him questions regarding how he was going to pay for his medical services. He was asked if he had health insurance.
+One day I asked my grandfather how to ice fish. He said all you need is a can of peas and a club.
 
-He replied in a raspy voice, 'No health insurance.'
+'Huh?', I said. 'How does that work?'
 
-The nun asked if he had money in the bank. He replied, 'No money in the bank.'
+'Well,' he said, 'After you cut the hole in the ice you just place the peas around the edge of the hole! Then you wait by the hole with your club.'
 
-The nun asked, 'Do you have a relative who could help you?'
+'What does that do?' I asked.
 
-He said, 'I only have a spinster sister who is a nun.'
-
-The nun got a little perturbed and announced loudly, 'Nuns are not spinsters! Nuns are married to God.'
-
-The patient replied, 'Then send the bill to my brother-in-law.'
+'Well,' he said with a grin. 'When the fish come up to take a pee, you hit him over the head with the club!'
 
