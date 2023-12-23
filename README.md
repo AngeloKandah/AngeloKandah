@@ -1,16 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Ant From Elephant
+Lawyers and Dogs
 
-How can you tell an elephant from an ant?
-
-
-
-
-
-
-
-
-
-An ant is easier to pick up!
+Q: What's the difference between a dead dog in the road and a dead lawyer in the road?
+A: There are skid marks in front of the dog.
 
