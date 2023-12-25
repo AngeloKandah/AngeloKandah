@@ -1,10 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Firemen
+The Subsitute
 
-One woman to another woman
-
-Woman- Those firemen are hot.
-Other Woman- Yeah they are nice looking.
-Woman- No. I mean they just came out of that burning building. They're hot.
+There was a couple. One day the husband went to work, as usual. All of a sudden a man in a truck appeared at the front door. The husband, frightened, hid behind a tree. The man exchanged a few words with the wife and left. The husband decided to get rid of that man once and for all.
+The next day, the husband went to work. But this time, he carried a shotgun with him. The man in the truck came again, the husband shot the man. Then the wife came out and cried,' You idiot! That man was filling in for my boyfriend!'
 
