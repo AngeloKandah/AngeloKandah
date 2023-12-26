@@ -1,7 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Subsitute
+Expression
 
-There was a couple. One day the husband went to work, as usual. All of a sudden a man in a truck appeared at the front door. The husband, frightened, hid behind a tree. The man exchanged a few words with the wife and left. The husband decided to get rid of that man once and for all.
-The next day, the husband went to work. But this time, he carried a shotgun with him. The man in the truck came again, the husband shot the man. Then the wife came out and cried,' You idiot! That man was filling in for my boyfriend!'
+A writer died and was given the option of going to heaven or hell. She decided to check out each place first. As the writer descended into the fiery pits, she saw row upon row of writers chained to their desks in a steaming sweatshop. As they worked, they were repeatedly whipped with thorny lashes.
+
+'Oh my,' said the writer. 'Let me see heaven now.'
+
+A few moments later, as she ascended into heaven, she saw rows of writers, chained to their desks in a steaming sweatshop. As they worked, they, too, were whipped with thorny lashes.
+
+'Wait a minute!' said the writer, 'this is just as bad as hell.'
+
+'Oh no, it's not,' replied an unseen voice. 'Here, your work gets published.'
 
