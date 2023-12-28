@@ -1,14 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Police
+Old Lady
 
-Kock-knock.
+Once there were twins, Joe and John. Joe was the owner of a dilapidated old boat. It so happened that John's wife died the same day that Joe's boat sank.
 
-Who's there?
+A few days later, a kindly old woman saw Joe and mistook him for John. She said, 'I'm sorry to hear about your loss. You must just feel terrible.'
 
-Please.
+Joe thinking that she was talking about his boat, said, 'Hell no, in fact is I'm sort of glad to be rid of her. She was a rotten old thing right from the beginning. Her bottom was all shriveled up and she smelled like old dead fish. She was always losing her water, she had a bad crack in the back and a pretty big hole in the front too. Every time I used her, her hole got bigger and she leaked like crazy.
 
-Please who?
-
-It's the police!  Open the door!
+I guess what finally finished her off was when I rented her to these four guys looking for a good time. I warned them that she wasn't very good, but they wanted to use her anyhow. The fools tried to get in her all at once and she split right up the middle.' The old lady fainted.
 
