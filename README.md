@@ -1,50 +1,32 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Things Not To Say On Your Wedding Night...
+Prison v. Work
 
-But everybody looks funny naked! 
+Prison v. Work
 
-You woke me up for that?
+In prison you spend the majority of your time in an 8' by 10' cell. At work you spend most of your time in a 6' by 8' cubicle.
 
-Did I mention the video camera?
+In prison you get three meals a day. At work you only get a break for one meal and you have to pay for that one.
 
-Hurry up! This room rents by the hour!
+In prison you get time off for good behaviour. At work you get rewarded for good behaviour with more work.
 
-Can you please pass me the remote control?
+In prison a guard locks and unlocks all the doors for you. At work you must carry around a security card and unlock and open all the doors yourself.
 
-Do you accept Visa?
+In prison you can watch TV and play games. At work you get fired for watching TV and playing games.
 
-ZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZ
+In prison they ball-and-chain you when you go somewhere. At work you are just ball-and-chained.
 
-On second thought, let's turn off the lights.
+In prison you get your own loot. At work you have to share.
 
-Do you get any premium movie channels?
+In prison they allow your family and friends to visit. At work you cannot even speak to your family and friends.
 
-Try not to smear my make-up, will ya?
+In prison all expenses are paid by taxpayers, with no work required. At work you get to pay all the expenses to go to work and then they deduct taxes from your salary to pay for the prisoners.
 
-But I just brushed my teeth . . .
+In prison you spend most of your life looking through bars from the inside wanting to get out. At work you spend most of your time wanting to get out and inside bars.
 
-Smile, you're on Candid Camera!
+In prison you can join many programs which you can leave at any time. At work there are some programs you can never get out of.
 
-Did you know the ceiling needs painting?
+In prison there are wardens who are often sadistic.....
 
-Did I remember to take my pill?
-
-But my cat always sleeps on that pillow . . .
-
-Did I tell you my Aunt Martha died in this bed?
-
-You're almost as good as my ex!
-
-Now I know why he/she dumped you . . .
-
-What are you planning to make for breakfast?
-
-I have a confession . . .
-
-You can cook too, right?
-
-Sorry about the name tags, I'm not very good with names.
-
-Don't mind me . . . I always file my nails in bed.
+At work we have managers.
 
