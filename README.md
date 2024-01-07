@@ -1,7 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Pig In A Bar
+The New Game of Life
 
-A woman and her goose walked into a bar. The bartender asked, 'Why'd you bring the pig in the bar?'
-The woman answered, 'I do believe this is a goose!' The bartender says, 'I was talking to the goose!'
+A  boy and  his mom were playing the new game of life were you could put your house  were you wanted it. The boy put it on the left side. On his next turn he moved it onto the right side. The mom asked why he did that and he said, 'I wanted to live on the other side of life.'
 
