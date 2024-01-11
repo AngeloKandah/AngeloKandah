@@ -1,10 +1,16 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Fixing Broken Computers
+Tickle Me Elmo
 
-An office technician got a call from a blonde. The blonde told the tech that her computer was not working. She described the problem and the tech concluded that the computer needed to be brought in and serviced. 
+There is a factory in Northern Minnesota which makes the Tickle Me Elmo toys. The toy laughs when you tickle it under the arms. Well, Lena is hired at The Tickle Me Elmo factory and she reports for her first day promptly at 8:00 AM.
 
-He told her to 'Unplug the power cord and bring it up here and I will fix it.' 
+The next day at 8:45 AM there is a knock at the Personnel Manager's door. The Foreman throws open the door and begins to rant about the new employee. He complains that she is incredibly slow and the whole line is backing up, putting the entire production line behind schedule.
 
-About fifteen minutes later she shows up at his door with the power cord in her hand.
+The Personnel Manager decides he should see this for himself, so the 2 men march down to the factory floor. When they get there the line is so backed up that there are Tickle Me Elmo's all over the factory floor and they're really beginning to pile up. At the end of the line stands Lena surrounded by mountains of Tickle Me Elmo's.
+
+She has a roll of plush red fabric and a huge bag of small marbles. The 2 men watch in amazement as she cuts a little piece of fabric, wraps it around two marbles and begins to carefully sew the little package between Elmo's legs.
+
+The Personnel Manager bursts into laughter. After several minutes of hysterics he pulls himself together and approaches Lena. 'I'm sorry,' he says to her, barely able to keep a straight face, 'but I think you misunderstood the instructions I gave you yesterday...'
+
+'Your job is to give Elmo two test tickles.'
 
