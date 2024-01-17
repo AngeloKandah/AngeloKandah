@@ -1,12 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Gee, thanks.
+Chef Offspring
 
-An explorer in the deepest Amazon suddenly finds himself surrounded by a bloodthirsty group of cannibals. Upon surveying the situation, he says quietly to himself, 'Oh God, I'm screwed.'
-
-The sky darkens and a voice booms out, 'No, you are NOT screwed. Pick up that stone at your feet and bash in the head of the chief standing in front of you.'
-
-So with the stone he bashes the life out of the chief. Standing above the lifeless body, breathing heavily looking at 100 angry natives...
-
-The voice booms out again, 'Okay... NOW you're screwed.'
+What did the chef name his son?
+Stu
 
