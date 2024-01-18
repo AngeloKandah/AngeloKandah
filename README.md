@@ -1,7 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Chef Offspring
+Yo Momma and the Pig
 
-What did the chef name his son?
-Stu
+Yo Momma is so smelly that when she entered a pig sty, all the pigs had to evacuate...
 
