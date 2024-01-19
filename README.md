@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Yo Momma and the Pig
+Drowning
 
-Yo Momma is so smelly that when she entered a pig sty, all the pigs had to evacuate...
+Yo momma's so stupid she tried to drown a fish.
 
