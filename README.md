@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Drowning
+Darwin's Insult
 
-Yo momma's so stupid she tried to drown a fish.
+Hey! I recognize you! You're the third one over on the evolutionary scale!
 
