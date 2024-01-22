@@ -1,8 +1,16 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Brooms TITLE Carrots
+'Under the Sea'
 
-Bob was joining the army and they were handing out rifles when he arrived, so he got in line. When it got to Bob, they had run out of guns. The man issuing rifles gave him a broom
-''This is a magic broom -- point it at anybody, say 'Bangity bangity bang,' and they will die.'' Bob was really worried because he didn't think it would work, but he got in line for bayonets, thinking he might stand a chance if he could stab them to death. As luck would have it, Bob's turn came and they had ran out. 
-''Don't worry.'' said the man issuing them out. ''I will give you this magic carrot -- point it at somebody, say 'Stabbity stabbity stab,' and they will die.' Now Bob is terrified, going into battle with a broom and carrot, when the sirens go off, signaling invasion. Bob goes out, only to be laughed at by the enemy. One enemy even comes up to him, hoping to get a good shot at him. Well, Bob didn't have anything to lose so he pointed at him and said ''Bangity bangity bang!'' and the guy fell down dead. He did the same thing with the magic carrot. Amazed at what was happening, he continued to fight. Then, a guy came slowly up to him and he would not die. Bob tried to shoot and stab him, but he wouldn't die. The last words poor Bob heard as he was being trampled over were ''Tankity tankity tank.''
+A man comes from a foreign country and buys a T.V. to learn some English, he turns to the first channel and it says, 'I did it, I did it I'm a big kid now.' He turns to the next channel and it said, 'Fork and knife, fork and knife.' He turns to one of those little kid commercials and they were saying, 'Under the Sea,' while wave their hands around crazily. The next one was a Ziploc commercial, saying, 'Ziploc bags, keeps things fresssshh.' He turns to the final commercial he has on his T.V. and it says, 'Plug it in! Plug it in!'
+
+He buys a 'stolen' car by accident which has a dead lady in the trunk, he drives for a while then finally the police pull him over. They open the car trunk and they ask the man, 'Sir, how do you explain this?' The man replies, 'I did it, I did it.' The police officer responds by saying, 'Well young man, what do you have to say for yourself?' He replies, 'I'm a big kid now.'
+
+The police officer takes him to the police station where they start questioning him, 'Sir, what did you kill the lady with?' He replies, 'Fork and knife! fork and knife!' while hitting the table really loudly.
+
+The police officer then asks him, 'Where did you kill the lady?' He replies, 'Under the Sea, Under the Sea.' Moving his hands violently.
+
+The officer ponders for a minute, 'Why is the lady so well preserved?' He replies, 'Ziploc bags, keeps things Freeeeessssshh.'
+
+The case goes to court and the man was found guilty, the judge decides to electrocute him as his penalty. As the man is seated in the chair, the judge gets a plug and asks the man, 'Any last words before you die?' He replies, 'Plug it in! Plug it in!' The man dies five minutes later.
 
