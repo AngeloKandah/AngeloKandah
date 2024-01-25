@@ -1,12 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Alphabetical Sequence
+A Couple Of Teenagers
 
-Change the position of just one of the words below so that all the words are in an alphabetical sequence: 
+A couple of teenagers craving something sweet drove to the nearest Baskin-Robbins. They bought ice cream cones and returned to their car to be comfortable. As they settled back to enjoy themselves, two ravens landed on the front hood and began to caw and flutter, and to peck at the windshield. The young man finally figured out what they wanted. He finished his ice cream, opened the window, and put his empty cone on the hood. The birds immediately settled down to eat. 'You're wonderful,' said his girlfriend. 'How did you ever think of that?' 
 
-llama phoenix hyena alligator beaver elephant tortoise antelope
-
-Antelope.
-
-Move it from the end to the beginning, the initial letters will then spell ALPHABET!
+'Nothing to it,' he replied. 'It was just a case of stilling two birds with one cone.'
 
