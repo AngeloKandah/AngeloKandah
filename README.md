@@ -1,8 +1,28 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-A Couple Of Teenagers
+12 Reasons Homosexual Marriage Should Not Be Legal
 
-A couple of teenagers craving something sweet drove to the nearest Baskin-Robbins. They bought ice cream cones and returned to their car to be comfortable. As they settled back to enjoy themselves, two ravens landed on the front hood and began to caw and flutter, and to peck at the windshield. The young man finally figured out what they wanted. He finished his ice cream, opened the window, and put his empty cone on the hood. The birds immediately settled down to eat. 'You're wonderful,' said his girlfriend. 'How did you ever think of that?' 
+1. Homosexuality is not natural, much like eyeglasses, polyester, and birth control. 
 
-'Nothing to it,' he replied. 'It was just a case of stilling two birds with one cone.'
+2. Heterosexual marriages are valid because they produce children. Infertile couples and old people can't legally get married because the world needs more children.
+
+3. Obviously gay parents will raise gay children, since straight parents only raise straight children. 
+
+4. Gay marriage will be less meaningful, since Britney Spears' 55-hour just-for-fun marriage was meaningful.
+
+5. Heterosexual marriage has been around a long time and hasn't changed at all; women are property, blacks can't marry whites, and divorce is illegal.
+
+6. Gay marriage should be decided by people not the courts, because the majority-elected legislatures, not courts, have historically protected the rights of the minorities.
+
+7. Gay marriage is not supported by religion. In a theocracy like ours, the values of one religion are imposed on the entire country. That's why we have only one religion in America.
+
+8. Gay marriage will encourage people to be gay, in the same way that hanging around tall people will make you tall.
+
+9. Legalizing gay marriage will open the door to all kinds of crazy behavior. People may even wish to marry their pets because a dog has legal standing and can sign a marriage contract.
+
+10. Children can never succeed without a male and a female role model at home. That's why single parents are forbidden to raise children.
+
+11. Gay marriage will change the foundation of society. Heterosexual marriage has been around for a long time, and we could never adapt to new social norms because we haven't adapted to cars or longer life spans.
+
+12. Civil unions, providing most of the same benefits as marriage with a different name are better, because a 'separate but equal' institution is always constitutional. Separate schools for African-Americans worked just as well as separate marriages for gays and lesbians will.
 
