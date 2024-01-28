@@ -1,26 +1,13 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Mexican Virus
+Voodoo Enronomics
 
-MEXICAN VIRUS                                                             
+Feudalism: You have two cows. Your lord takes some of the milk. 
+Fascism: You have two cows. The government takes both, hires you to take care of them and sells you the milk. 
 
-                                                                            
+Communism: You have two cows. You must take care of them, but the government takes all the milk. 
 
-  BUENOS DIAS!!                                                             
+Capitalism: You have two cows. You sell one and buy a bull. Your herd multiplies, and the economy grows. You sell them and retire on the income. 
 
-                                                                            
-
-JOU HAVE YUST RECEIVED A MEHICAN BIRUS!!!  
-
-  
-
-SINCE WE NOT SO TECHNOLOGICALLY ADBANCED IN MEHICO, DIS IS A MANUAL BIRUS.
-
-PLEASE DELETE ALL THE FILES ON JOUR HARD DRIVE JOURSELF AND SEND THIS E-MAIL TO EBERYONE JOU KNOW. 
-
-TAN JOU POR YELPING ME.                                                                   
-
- 
-
-JULIO MANUEL JOSE  FEDENZIO  RODRIGUEZ GARCIA , MEXICAN HACKER
+Enron Capitalism: You have two cows. You sell three of them to your publicly listed company, using letters of credit opened by your brother-in-law at the bank, then execute a debt-equity swap with an associated general offer so that you get all four cows back, with a tax exemption for five cows. The milk rights of the six cows are transferred through an intermediary to a Cayman Island company secretly owned by the majority shareholder who sells the rights to all seven cows back to your listed company. The Enron annual report says the company owns eight cows, with an option on one more.
 
