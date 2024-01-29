@@ -1,13 +1,20 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Voodoo Enronomics
+The Historical Origin Of 'The Finger'
 
-Feudalism: You have two cows. Your lord takes some of the milk. 
-Fascism: You have two cows. The government takes both, hires you to take care of them and sells you the milk. 
+This is not meant to be crude. It is strictly for your edification and enjoyment. 
 
-Communism: You have two cows. You must take care of them, but the government takes all the milk. 
+Before the Battle of Agincourt in 1415, the French, anticipating victory over the English, proposed to cut off the middle finger of all captured English soldiers. Without their middle finger, it would be impossible to draw the renowned English longbow and therefore they would be incapable of fighting in the future. 
 
-Capitalism: You have two cows. You sell one and buy a bull. Your herd multiplies, and the economy grows. You sell them and retire on the income. 
+The longbow was a famous weapon. It was made of the native English Yew tree, and the act of drawing the longbow was known as 'plucking the yew.' 
 
-Enron Capitalism: You have two cows. You sell three of them to your publicly listed company, using letters of credit opened by your brother-in-law at the bank, then execute a debt-equity swap with an associated general offer so that you get all four cows back, with a tax exemption for five cows. The milk rights of the six cows are transferred through an intermediary to a Cayman Island company secretly owned by the majority shareholder who sells the rights to all seven cows back to your listed company. The Enron annual report says the company owns eight cows, with an option on one more.
+Much to the bewilderment of the French, the English won a major upset and began mocking the French by waving their middle fingers at the defeated French, saying, 'See, we can still pluck yew! PLUCK YEW!' 
+
+Over the years, some 'folk etymologies' have grown up around this symbolic gesture. Since 'pluck yew' is rather difficult to say (like 'pleasant mother pheasant plucker', which is who you had to go to for the feathers used on the arrows for the longbow), the difficult consonant cluster at the beginning has gradually changed to a labiodental fricative 'F', and thus the words often used in conjunction with the one-finger-salute are mistakenly thought to have something to do with an intimate encounter. 
+
+It is also because of the pheasant feathers on the arrows that the symbolic gesture is known as 'giving the bird'. 
+
+Are you not thrilled that you have someone out there that will send you educational stuff like this? 
+
+History repeats itself - Once again the appropriate message was given to the French!
 
