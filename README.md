@@ -1,8 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Walls
+Buccaneer
 
-Q: What device lets you see through a wall?
-
-A: Window
+too much to pay for corn ([a] buck an ear)
 
