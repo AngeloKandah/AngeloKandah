@@ -1,18 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Naval Operations
+Dad's Reaction
 
-The following is an actual radio conversation released by the Chief of Naval Operations: 
+The following is something actually said by my dad. I wanted to see what my dad would say if I said I might be gay, here was his reaction.
 
-#1: Please divert your course 15 degrees to the north to avoid a collision. 
-
-#2: Recommend you divert your course 15 degrees to south to avoid a collision. 
-
-#1: This is the captain of a U. S. navy ship. I say again, divert YOUR course. 
-
-#2: No. I say again, you divert YOUR course. 
-
-#1. THIS IS THE AIRCRAFT CARRIER ENTERPRISE. WE ARE A LARGE WARSHIP OF THE U. S. NAVY. DIVERT YOUR COURSE NOW! 
-
-#2. This is a lighthouse. Your call.
+YOU'D BETTER NOT BE!! EVEN IF I HAVE TO BUY YOU SOME PUSSY, YOU WILL NOT BE GAY!!!!!!
 
