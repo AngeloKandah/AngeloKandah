@@ -1,50 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Actual School Excuse Notes
+5 You're So Poor Insults
 
-These are excuse notes from parents (with their original spelling) collected by schools from all over the country:
+1) You're so poor that when somebody rings the doorbell you have to stick your head out the window and yell, 'Ding-Dong!'
 
-1) My son is under a doctor's care and should not take P.E. today. Please execute him. 
+2) You're so poor that when I asked if I could use the bathroom at your house your mom gave me two sticks, one to hold the ceiling up and one to fight the cockroaches.
 
-2) Please excuse Lisa for being absent. She was sick and I had her shot. 
+3) You're so poor that your house is 5 square yards, one floor and no walls.
 
-3) Dear School: Please exscuse John being absent on Jan. 28, 29,30, 31, 32, and also 33. 
+4) You're so poor that your house is very dark because you can't afford a light bulb.
 
-4) Please excuse Gloria from Jim today. She is administrating. 
-
-5) Please excuse Roland from P.E. for a few days. Yesterday he fell out of a tree and misplaced his hip. 
-
-6) John has been absent because he had two teeth taken out of his face. 
-
-7) Carlos was absent yesterday because he was playing football. He was hurt in the growing part. 
-
-8) Megan could not come to school today because she has been bothered by very close veins. 
-
-9) Chris will not be in school cus he has an acre in his side. 
-
-10) Please excuse Ray Friday from school. He has very loose vowels. 
-
-11) Please excuse Pedro from being absent yesterday. He had (diahre) (dyrea) (direathe) the runs. [words in ()'s were crossed out.] 
-
-12) Please excuse Burma, she has been sick and under the doctor. 
-
-13) Irving was absent yesterday because he missed his bust. 
-
-14) Please excuse Jimmy for being. It was his father's fault. 
-
-15) I kept Billie home because she had to go Christmas shopping because I don't know what size she wears. 
-
-16) Please excuse Jennifer for missing school yesterday. We forgot to get the Sunday paper off the porch, and when we found it Monday, we thought it was Sunday. 
-
-17) Sally won't be in school a week from Friday. We have to attend her funeral. 
-
-18) My daughter was absent yesterday because she was tired. She spent a weekend with the Marines. 
-
-19) Please excuse Jason for being absent yesterday. He had a cold and could not breed well. 
-
-20) Please excuse Mary for being absent yesterday. She was in bed with gramps. 
-
-21) Maryann was absent December 11-16, because she had a fever, sore throat, headache and upset stomach. Her sister was also sick, fever and sore throat, her brother had a low grade fever and ached all over. I wasn't the best either, sore throat and fever. There must be something going around, her father even got hot last night. 
-
-22) Please excuse little Jimmy for not being in school yesterday. His father is gone and I could not get him ready because I was in bed with the doctor.
+5) You're so poor that you live in an out-house.
 
