@@ -1,11 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Tree
+Motorcycle
 
-If I'm canoeing up a tree, how many cupcakes does it take to get to the moon? 
+What are two blondes doing in front of a motorcycle?
 
-
-
-
-None, since vests don't have sleeves.
+Arguing about who get a window seat.
 
