@@ -1,8 +1,9 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Motorcycle
+What Do You Get...
 
-What are two blondes doing in front of a motorcycle?
+What do you get when you cross a porcupine with a shark?
 
-Arguing about who get a window seat.
+
+Far far away!
 
