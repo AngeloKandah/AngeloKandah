@@ -1,10 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Hard Work
+Lunch
 
-God: 'Whew! I just created a 24-hour period of alternating light and darkness on Earth.'
+The teacher of the earth science class was lecturing on map reading. 
 
-Angel: 'What are you going to do now?'
+After explaining about latitude, longitude, degrees and minutes the teacher asked, 'Suppose I asked you to meet me for lunch at 23 degrees, 4 minutes north latitude and 45 degrees, 15 minutes east longitude...?' 
 
-God: 'Call it a day.'
+After a confused silence, a voice volunteered, 'I guess you'd be eating alone.'
 
