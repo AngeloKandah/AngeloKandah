@@ -1,11 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Sergeant Rosenbloom
+The Meaning of Dreams
 
-During World War II, a sergeant gets a telephone call from a woman. 'We would love it,' she said, 'if you could bring five of your soldiers over to our house for Thanksgiving dinner.'
-'Certainly, ma'am,' replied the sergeant.
-'Oh... just make sure they aren't Jews, of course,' said the woman.
-'Will do,' replied the sergeant. So that Thanksgiving while the woman is baking, the doorbell rings. She opens her door and, to her horror, five black soldiers are standing in front of her.
-'Oh, my!' she exclaimed. 'I'm afraid there's been a terrible mistake!'
-'No ma'am,' said one of the soldiers. 'Sergeant Rosenbloom never makes mistakes!'
+A woman awoke excitedly on Valentine's Day and announced enthusiastically to her husband, 'I just dreamt that you gave me a pearl necklace for Valentine's Day! What do you think it means?'
+
+With certainty in his voice, the man said, 'You'll know tonight.'
+
+That evening, the man came home with a small package and handed it to his wife. With anxious anticipation the woman quickly opened the package to find a book entitled, 'The Meaning of Dreams.'
 
