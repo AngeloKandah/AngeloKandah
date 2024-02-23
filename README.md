@@ -1,30 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-What Your Kid Does...
+Suicide
 
-FLATTERY - What your kid does when they want something.
+A blonde decided to commit suicide by hanging herself from a tree in the park. 
 
-EAT VEGETABLES - What your kid does when they want dessert. Usually.
+A few days later, a man was walking his dog and spotted her hanging from the tree. He asks the blonde what she is doing and she replies, 'I'm hanging myself.'
 
-BEG, CRY, or WHINE - What your kid does when they want something you don't want to give them.
-
-CALL - What your kid does when they get a good grade.
-
-'FORGET' TO CALL - What your kid does when they do NOT get a good grade.
-
-BRUSH TEETH - What your kid promises to do so you will let them eat candy. And then they forget.
-
-DRINK MILK - What your kid does after they heat it up and add hot chocolate powder.
-
-SPILL WATER - What your kid does when they want to drink soda instead.
-
-DROP THEIR LUNCH - What your kid does when they don't like what you made for them.
-
-PRETEND TO SLEEP - What your kid does when they don't want to talk.
-
-READ - What your kid does when you buy them a new comic book.
-
-DO HOMEWORK - What your kid does only when you yell at them.
-
-USE THE COMPUTER - What your kid does, all the time.
+'You're supposed to put the noose around your neck, not your waist,' said the onlooker. 'I tried that,' replied the blonde, 'but I couldn't breathe.'
 
