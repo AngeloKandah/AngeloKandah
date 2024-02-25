@@ -1,21 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Birthday Card
+Shot Gun
 
-What starts with B, has 2 E's, and ends in R????
+yo mamma is like a shot gun:
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-Birthday Cheer!!!!!!!!!!!!!!!!!!!!
+One cock and shes ready to blow!!
 
