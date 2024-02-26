@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Shot Gun
+Hockey
 
-yo mamma is like a shot gun:
+What do you call a Canadian fire?
 
-One cock and shes ready to blow!!
+A Calgary Flame.
 
