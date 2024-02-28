@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Truth About Grandparents
+Tube Top
 
-The reason grandparents and children get along so well is really quite simple: They have a common enemy.
+You might be a redneck if you wear a tube top to a funeral!
 
