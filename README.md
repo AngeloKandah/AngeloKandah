@@ -1,6 +1,16 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Tube Top
+Ant From Elephant
 
-You might be a redneck if you wear a tube top to a funeral!
+How can you tell an elephant from an ant?
+
+
+
+
+
+
+
+
+
+An ant is easier to pick up!
 
