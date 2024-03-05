@@ -1,42 +1,20 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Gift Registry
+The Lords Name in Vain
 
-Jacob, age 92, and Rebecca, age 89, are quite excited about their decision to get married. They go for a stroll to discuss the wedding and on the way they pass a drugstore. Jacob suggests they go in.
+'My friend,' said St. Peter to the recently deceased, 'you did lead an exemplary life on earth - but there is one instance of your taking the name of The Lord in vain. Would you care to tell us about it?' 
 
-Jacob addresses the man behind the counter. 'Are you the owner?'
+'I recall,' replied the new applicant, 'it was in 1965 on the last hole at Pinehurst. I only needed a par four to break 70 for the first time in my life.' 
 
-The pharmacist answers, 'Yes.'
+'Was your drive good?' asked St. Peter, with increasing interest. 
 
-Jacob: 'We're about to get married. Do you sell heart medication?'
+'Right down the middle. But when I got to my ball, it was plugged deep in a wet rut made by a drunk's golf cart.' 
 
-Pharmacist: 'Of course we do.'
+'Oh dear,' said St. Peter, 'A real sucker! Is that when you...' 
 
-Jacob: 'How about medicine for circulation?'
+'No. I'm pretty good with a 3-iron. I played the ball close to my feet, caught the sweet spot and moved it right onto the green. But it bounced on a twig or something - it was a very windy day - and slid off the apron right under the steepest lip of the trap.' 
 
-Pharmacist: 'Many kinds.'
+'What a pity!' said St. Peter consolingly, 'Then that must have been when...' 'No. I gritted my teeth, dug in with and open stance, swung a smooth outside arc, and backspun a bucket's worth of sand up onto the green. When everything settled down, there was my ball, only ten inches off into the cup.' 
 
-Jacob: 'Medicine for rheumatism, scoliosis?'
-
-Pharmacies: 'Definitely.'
-
-Jacob: 'How about Viagra?'
-
-Pharmacist: Hesitates slightly but answers, 'Of course.'
-
-Jacob: 'Medicine for memory problems, arthritis, jaundice?'
-
-Pharmacist: 'Yes, a large variety.'
-
-Jacob: 'What about vitamins, sleeping pills, Geritol, antidotes for Parkinson's?'
-
-Pharmacist: 'Absolutely!'
-
-Jacob: 'Do you sell wheelchairs and walkers?'
-
-Pharmacist: 'All speeds and sizes.'
-
-Jacob turns and confers with his wife to be and then says to the pharmacist,
-
-'We'd like to register here for our wedding gifts.'
+'JESUS CHRIST!' shrieked St. Peter, 'don't tell me you choked the putt!'
 
