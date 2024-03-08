@@ -1,6 +1,20 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-IPhone
+The Parrot
 
-With iPhone, dialing contacts is a snap. Let's say you wanted to contact your ex-girlfriend to let her know how badly she's hurt you. Simply press her name, and the call is dialed. 'Dammit, Rick, stop calling me!' Then, when another call comes in, simply place that call on hold and answer the second one. 'This is Detective Hanson, from the Bay Area Police Department.' To block the call, simply press ignore. iPhone is also the best iPod ever made. With it, you can listen to the song that was playing when she said you'd be together forever. *music* Then, you can use Google maps to locate the street where she's moved away to. Simply touch the traffic button and iPhone tells you the best route to take to propose to her. Again, Apple's iPhone, a revolutionary portable device that never leaves your side. And never sleeps with your cousin.
+A woman went to a pet shop and immediately spotted a large, beautiful  parrot. There was a sign on the cage that read $50. 
+
+'Why so little?' she asked the pet store owner. 
+
+The owner looked at her and said, 'Look, I should tell you first ... that this bird used to live in a house of  prostitution, and sometimes he says some pretty vulgar stuff.' 
+
+The woman thought about this, but decided she had to have the bird anyway. She  took it home and hung the bird's cage up in her living room, and waited for it to say something. 
+
+The bird carefully looked around the room, then it looked at her and said, 'New house ... new madam.' The woman was a bit shocked at the implication, but then thought, 'That's not so bad.'
+
+ When her two teenage daughters returned from school the parrot looked at both of them, and said, 'New house ... new madam ... new hookers.' 
+
+The girls were at first a bit offended, but then began to laugh about the whole situation. She then began to think about how to explain this to  Keith, her husband. 
+
+Moments later, the woman's husband came home from  work. Before he had time to close the door, the bird took one look at him and said, 'Hi Keith.'
 
