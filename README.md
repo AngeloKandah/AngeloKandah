@@ -1,29 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Top twenty ways to say 'your fly is open.'
+Spooked Cab Driver
 
-20. The cucumber has left the salad. 
-19. I can see the gun of Navarone. 
-18. Someone tore down the wall, and your Pink Floyd is hanging out. 
-17. You've got Windows in your laptop. 
-16. Sailor Ned's trying to take a little shore leave. 
-15. Your soldier ain't so unknown now. 
-14. Quasimodo needs to go back in the tower and tend to his bell. 
-13. Paging Mr. Johnson... Paging Mr. Johnson... 
-12. You need to bring your tray table to the upright and locked position. 
-11. Your pod bay door is open, Hal. 
-10. Elvis Junior has LEFT the building! 
-9. Mini Me is making a break for the escape pod. 
-8. Ensign Hanes is reporting a hull breach on the lower deck, Sir! 
-7. The Buick is not all the way in the garage. 
-6. Dr. Kimble has escaped! 
-5. You've got your fly set for 'Monica' instead of 'Hillary.' 
-4. Our next guest is someone who needs no introduction... 
-3. You've got a security breach at Los Pantalones. 
-2. I'm talking about Shaft, can you dig it? 
- 
-AND THE NUMBER ONE WAY 
-TO TELL SOMEONE THEIR FLY IS UNZIPPED... 
- 
-1. I thought you were crazy; now I see your nuts.
+A man was riding in a cab one day when he decided to tap the cab driver on the shoulder to request an alternate route.
+
+The cab driver screams his head off and loses control of the cab, causing it to slam into a lightpost.
+
+After checking themselves out the man says, 'I'm sorry. I didn't know you were so jumpy.'
+
+To which the cab driver replies, 'It's not your fault. Today is my first day as a cab driver after driving a hearse for 10 years.'
 
