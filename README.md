@@ -1,12 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Spooked Cab Driver
+Four Catholic Women
 
-A man was riding in a cab one day when he decided to tap the cab driver on the shoulder to request an alternate route.
-
-The cab driver screams his head off and loses control of the cab, causing it to slam into a lightpost.
-
-After checking themselves out the man says, 'I'm sorry. I didn't know you were so jumpy.'
-
-To which the cab driver replies, 'It's not your fault. Today is my first day as a cab driver after driving a hearse for 10 years.'
+Four Catholic women are sitting in a cafe sipping their tea, talking about their great sons. Soon it begins as a contest to see who has the best son.
+The first woman proudly declares, 'My son is a priest. When he walks into a room people call him 'Father.'
+The second woman replies even more proudly, 'My son is a bishop, when he walks into a room people call him 'My Grace.'
+The third woman thinking she wins replies, 'My son is a Cardinal! When he walks into a room people say, 'My Eminence.'
+The fourth woman says nothing but sips her tea quietly.
+The three women stare at her and then ask her what is so special about her son.
+With a smug look on her face she replies, 'My son is a 6' 5' muscular man, with a chiseled jaw and arms as big as pipes. And when he walks into a room all the woman say, 'Oh My God.'
 
