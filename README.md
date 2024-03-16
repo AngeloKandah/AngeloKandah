@@ -1,6 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-See Helen
+6.9
 
-Helen Waite is our credit manager. If you want credit, go to Helen Waite.
+A boy asks his dad,'Dad, what is 6.9?'
+The dad answers, '69 interrupted by a period!'
 
