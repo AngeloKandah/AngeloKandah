@@ -1,26 +1,30 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-How To Identify Where A Driver Is From
+Translated Car Ads
 
-1. One hand on wheel, one hand on horn: Chicago. 
+'Two tone paint work' - Original color and rust.
 
-2. One hand on wheel, one finger out window: New York. 
+'One careful owner' - But the other nine were clumsy as anything.
 
-3. One hand on wheel, one finger out window, cutting across all lanes of traffic: New Jersey. 
+'10,000 trouble-free miles' - Crashed in the last 20 feet.
 
-4. One hand on wheel, one hand on newspaper, foot solidly on accelerator: Boston. 
+'Heated rear window' - So you don't get cold hands when push-starting the thing in winter.
 
-5. One hand on wheel, one hand on nonfat double decaf cappuccino, cradling cell phone, brick on accelerator, with gun in lap: Los Angeles. 
+'Very clean' - Only washed if and when it rains.
 
-6. Both hands on wheel, eyes shut, both feet on brake, quivering in terror: Ohio, but driving in California. 
+'Lady owner' - The glove box is full of half-used cosmetics.
 
-7. Both hands in air, gesturing, both feet on accelerator, head turned to talk to someone in back seat: Italy. 
+'Clean interior' - All the rubbish is under the floormats.
 
-8. One hand on latte, one knee on wheel, cradling cell phone, foot on brake, mind on radio game: Seattle. 
+'Immobilizer' - The gear shift comes off in your hand.
 
-9. One hand on wheel, one hand on hunting rifle, alternating between both feet being on the accelerator and both feet on brake, throwing McDonald's bag out the window: Texas. 
+'Anti-theft device' - I can let you have a Rottweiler cheap.
 
-10. Four-wheel drive pick-up truck, shotgun mounted in rear window, beer cans on floor, squirrel tails attached to antenna: West Virginia. 
+'Drives beautifully' - ... in a straight line; the steering is all over the place.
 
-11. Two hands gripping wheel, blue hair barely visible above windshield, driving 35 on the Interstate in the left lane with the left blinker on: Florida.
+'Low mileage' - The odometer is on its third time around.
+
+'Full service history' - Charlie in the garage round the corner checked it over last week.
+
+'Economical' - Doesn't use much fuel, as it can't go any faster than 30 mph.
 
