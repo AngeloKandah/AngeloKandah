@@ -1,30 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Translated Car Ads
+Motorized Wheelchairs
 
-'Two tone paint work' - Original color and rust.
-
-'One careful owner' - But the other nine were clumsy as anything.
-
-'10,000 trouble-free miles' - Crashed in the last 20 feet.
-
-'Heated rear window' - So you don't get cold hands when push-starting the thing in winter.
-
-'Very clean' - Only washed if and when it rains.
-
-'Lady owner' - The glove box is full of half-used cosmetics.
-
-'Clean interior' - All the rubbish is under the floormats.
-
-'Immobilizer' - The gear shift comes off in your hand.
-
-'Anti-theft device' - I can let you have a Rottweiler cheap.
-
-'Drives beautifully' - ... in a straight line; the steering is all over the place.
-
-'Low mileage' - The odometer is on its third time around.
-
-'Full service history' - Charlie in the garage round the corner checked it over last week.
-
-'Economical' - Doesn't use much fuel, as it can't go any faster than 30 mph.
+I  was looking at this parked, motorized wheelchair once, and I noticed that it had a dial on it to control it's speed.  At one end there was a turtle, and at the other end there was a rabbit.  I just assumed at first that the turtle was representing the slower speed, and that the rabbit was for the faster speed, but then I remembered who won when those two animals raced.
+I think that it would be cool if cars used this same system too.  You know, you get pulled over by a police officer and he says to you 'Excuse me sir, but do you realize that you were speeding?  We had you clocked  on our radar at going 'Rabbit' and I'm sure that you know the posted speed limit here is only 'Raccoon'.  Now we'll just let you off with a warning this time since you were only going a 'hare' over the speed limit.'
 
