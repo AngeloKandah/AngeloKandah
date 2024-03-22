@@ -1,22 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Lifetimes of Susie and Mike
+Stupidity is Not a Crime!
 
-'Ahhhh...'
-
-'Mike! What's wrong?'
-
-'I-I had a nightmare.'
-
-'What was the nightmare?'
-
-'I-I-'
-
-'Yes?'
-
-'I-I-'
-
-'Spit it out!'
-
-'I-I went to heaven.'
+Stupidity is not a crime... So you're free to go!
 
