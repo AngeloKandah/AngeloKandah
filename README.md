@@ -1,6 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Cingular Wireless
+Tutor
 
-Yo momma's so fat she should get cingular on her stomach so she can get rollover minutes.
+A tutor who tooted the flute
+Tried to teach two young tooters to toot
+Said the two to the tutor
+Is it harder to toot or
+To tutor two tooters to toot?
 
