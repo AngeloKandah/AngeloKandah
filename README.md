@@ -1,10 +1,50 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Mafia Christmas
+Zombie Lingo
 
-A mafioso's son sits at his desk writing a Christmas list to Jesus. He first writes, 'Dear baby Jesus, I have been a good boy the whole year, so I want a new...' He looks at it, then crumples it up into a ball and throws it away. 
+We all know that a good old fashioned zombie says 
 
-He gets out a new piece of paper and writes again, 'Dear baby Jesus, I have been a good boy for most of the year, so I want a new...' He again looks at it with disgust and throws it away. 
 
-He then gets an idea. He goes into his mother's room, takes a statue of the Virgin Mary, puts it in the closet, and locks the door. He takes another piece of paper and writes, 'Dear baby Jesus. If you ever want to see your mother again...'
+
+'Braaaaiiiiins!'
+
+
+
+
+But what would these zombies say?
+
+
+
+
+A Vegan Zombie - 'Graaaaaiiiiins!'
+
+
+
+
+
+A 1940's Mobster Zombie - 'Daaaaaaames!'
+
+
+
+
+
+A Michael Jordan Zombie - 'Haaaaaayynes!'
+
+
+
+
+
+A Vampire Zombie - 'Veeeeeeeiiiiins!'
+
+
+
+
+
+A Masochistic Zombie - 'Paaaaaiiiiiins!'
+
+
+
+
+
+A Maid Zombie - 'Staaaaaiiiins!'
 
