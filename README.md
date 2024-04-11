@@ -1,50 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Zombie Lingo
+Geriatic Humor II
 
-We all know that a good old fashioned zombie says 
-
-
-
-'Braaaaiiiiins!'
-
-
-
-
-But what would these zombies say?
-
-
-
-
-A Vegan Zombie - 'Graaaaaiiiiins!'
-
-
-
-
-
-A 1940's Mobster Zombie - 'Daaaaaaames!'
-
-
-
-
-
-A Michael Jordan Zombie - 'Haaaaaayynes!'
-
-
-
-
-
-A Vampire Zombie - 'Veeeeeeeiiiiins!'
-
-
-
-
-
-A Masochistic Zombie - 'Paaaaaiiiiiins!'
-
-
-
-
-
-A Maid Zombie - 'Staaaaaiiiins!'
+Two elderly women were eating at a restaurant one morning. Ethel noticed something funny about Mabel's ear and she said, 'Mabel, did you know you've got a suppository in your left ear?'
+ 
+Mabel answered, 'I have? A suppository?' She pulled it out and stared at it. Then she said, 'Ethel, I'm glad you saw this thing. Now I think I know where my hearing aid is.'
 
