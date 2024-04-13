@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Perfect Climate
+Bit of a Blur
 
-The perfect climate is in bed.
+Overall, I'd say my career as a photographer has been a bit of a blur.
 
