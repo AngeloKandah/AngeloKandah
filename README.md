@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Bit of a Blur
+No Pushing!
 
-Overall, I'd say my career as a photographer has been a bit of a blur.
+What did the whale say to the dolphin when he pushed him? I didn't do it on porpoise!
 
