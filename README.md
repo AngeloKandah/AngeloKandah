@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-No Pushing!
+IRS
 
-What did the whale say to the dolphin when he pushed him? I didn't do it on porpoise!
+IRS... we've got what it takes, to take what you've got
 
