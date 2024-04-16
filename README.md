@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-IRS
+Redneck Marriage
 
-IRS... we've got what it takes, to take what you've got
+Wonder if you are a redneck....Well, if you have been married four times and still have the same in-laws you must be.
 
