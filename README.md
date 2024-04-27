@@ -1,7 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Rude Joke
+The Difference Between Cats and Dogs.
 
-What is the difference between a Harley and a Hoover?
-The position of the dirt bag.
+Dogs have masters, cats have staff.
 
