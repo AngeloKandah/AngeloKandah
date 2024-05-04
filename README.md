@@ -1,10 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Should Never
+Whats a Joke Subscription?
 
-Fill in the blank:
-
-The one who says it cannot be done should never _________ the one who is doing it. 
-
-Interrupt.
+Not to be confused with the Daily Joke Newsletter, a subscription to a joke means that it will appear on your 'View Subscriptions' page. This allows you to keep up-to-date on the conversation/comments of your favorite jokes. To subscribe, click the checkbox at the bottom of the comment box on the joke page. You can always unsubscribe at any time.
 
