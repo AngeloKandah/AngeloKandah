@@ -1,10 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Going By Experience
+5p.m. Jungle
 
-A motorist was on trial for hitting a pedestrian.
+Why is it dangerous to go in the jungle after 5 p.m? 
 
-His lawyer argued, 'Your Honor, my client has been driving for over twenty-five years.'
+Because elephants jump out of trees after 5 p.m. 
 
-'Your Honor,' the plaintiff's lawyer retored, 'if this case is going to be judged by experience, may I remind you that my client has been walking for over fifty years!'
+
+
+Why do beavers have flat tails?
+ 
+Because they go in the jungle after 5 p.m!
 
