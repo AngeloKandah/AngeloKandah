@@ -1,14 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-5p.m. Jungle
+What Do Railroad Tracks...
 
-Why is it dangerous to go in the jungle after 5 p.m? 
+What do railroad tracks and blondes have in common?
 
-Because elephants jump out of trees after 5 p.m. 
-
-
-
-Why do beavers have flat tails?
- 
-Because they go in the jungle after 5 p.m!
+They are both laid all over America!
 
