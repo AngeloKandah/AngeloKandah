@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-What Do Railroad Tracks...
+Prudhomme's Law
 
-What do railroad tracks and blondes have in common?
+Prudhomme's Law of Window Washing
 
-They are both laid all over America!
+It's on the OTHER side.
 
