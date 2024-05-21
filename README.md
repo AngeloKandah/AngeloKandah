@@ -1,8 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Prudhomme's Law
+Brake! I Said Brake!
 
-Prudhomme's Law of Window Washing
-
-It's on the OTHER side.
+My pal is addicted to brake fluid - but he says he can stop any time he wants.
 
