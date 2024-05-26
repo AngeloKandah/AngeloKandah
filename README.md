@@ -1,10 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Good Morning, Sisters
+First Confession
 
-A young priest gets up in the morning and goes to breakfast. On his way there, two nuns look at him and he says, 'Good morning, Sisters,' and they reply, 'You got up on the wrong side of the bed this morning.'
+A parish priest was being honored at a dinner on the twenty-fifth anniversary of his arrival in that parish. A leading local politician, who was a member of the congregation, was chosen to make the presentation and to give a little speech at the dinner, but he was delayed in traffic, so the priest decided to say his own few words while they waited.
 
-This stuns the priest, who thought he had been very polite, but he just goes on. He encounters a Brother a little while later along the way and he says, 'Good morning, Brother.' The Brother replies, 'You got up on the wrong side of the bed this morning.' The priest was very confused at this and goes on.
+'You will understand,' he said, 'the seal of the confessional can never be broken, however I got my first impressions of the parish from the first confession I heard here. I can only hint vaguely about this, but when I came here 25 years ago I thought I had been assigned to a terrible place. The very first chap who entered my confessional told me how he had stolen a television set, and when stopped by the police, had almost murdered the officer! Further, he told me he had embezzled money from his place of business and had an affair with his boss's wife. I was appalled! But as the days went on, I learned that my people were not all like that, and I had, indeed, come to a fine parish full of understanding and loving people.'
 
-He gets a little farther and he comes across a fellow priest and he says, 'Good morning, Father.' The priest replies, 'You got up on the wrong side of the bed this morning.' Now the priest was mad. He continues his walk to the dining hall not saying a word to anyone. The Bishop sees him and says, 'Father ...' The young priest was not going to take any more even from the bishop. He looks at the bishop and says, 'No, I did not get up on the wrong side of the bed this morning.' The bishop looks at him stunned and says, 'What?' The priest realised his mistake and said, 'I am sorry, your holiness, what is it you want?' The bishop looks at him and says, 'I was only going to ask you why you had on Sister Ann's shoes?'
+Just as the priest finished his talk, the politician arrived full of apologies at being late. He immediately began to make the presentation and give his talk.
+
+'I'll never forget the first day our parish priest arrived in this parish,' said the politician. 'In fact, I had the honour of being the first one to go to him in confession.'
 
