@@ -1,12 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Work Equations
+The Doctor VIII
 
-Smart Boss + Smart Employee = Profit 
+Two friends, who haven't met for a couple of years, are catching up with each other's news.
 
-Smart Boss + Dumb Employee = Production 
+One says, 'And then the doctor said he'd have me back on my feet in a fortnight!'
 
-Dumb Boss + Smart Employee = Promotion 
+His pal says, 'Well, did he?'
 
-Dumb Boss + Dumb Employee = Overtime
+'He sure did, I had to sell my car to pay him!'
 
