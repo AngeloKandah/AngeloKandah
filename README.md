@@ -1,28 +1,88 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Old Lady's Bet
+Complicated Song
 
-An old lady walks into a bank and says, 'I would like to set up an account.'
+Uh huh ... extra cheese
+Uh huh, uh huh ... save a piece for me
 
-The man at the desk says, 'Okay, how much would you like to deposit?'
+Pizza party at your house
+I went just to check it out
+Nineteen extra larges
+What a shame
+No one came
 
-The woman replies, '$5,000.'
+Just us eatin' all alone
+You said, Take the pizza home
+No sense lettin' all this go to waste
+So then I faced
 
-'Wow!' says the man, 'where did you get all of that?'
+Pizza all day
+And every day
+This cheese 'round the clock
+Is gettin' me blocked
+And I sure don't care
+For irregularity
 
-'I like to make bets.'
+Tell me
+Why'd you have to go and make me so constipated?
+'Cause right now I'd do anything to just get my bowels evacuated
+In the bathroom ... I sit and I wait and I strain
+And I sweat and I clench and I feel the pain
+Oh, should I take laxatives or have my colon irrigated?
+No no no
 
-'What type of bets?'
+I was feelin' pretty down
+'Till my girlfriend came around
+We're just so alike in every way
+I gotta say
 
-The woman replied, 'Tomorrow when, I will come in, you will have a butterfly tattoo an your left buttock. I will bet all the money I am about to deposit.'
+In fact, I just thought I might
+Pop the question there that night
+I was kissing her so tenderly
+But woe is me
 
-'Deal,' says the man.
+Who would have guessed
+Her family crest
+I'd suddely spy
+Tattooed on her thigh
+And son-of-a-gun
+It's just like the one on me
 
-The next day the old woman walked in again with her lawyer. the man at the counter pulled down his pants to show the old woman his empty left buttock.
+Tell me
+How was I supposed to know we were both related?
+Believe me, if I knew she was my cousin we never would have dated
+What to do now? Should I go ahead and propose
+And get hitched and have kids with eleven toes
+And move to Alabama where that kind of thing is tolerated?
+No no no no no no no
+No no no no no no no
+No no no no 
 
-'I win!' he said as the woman handed him his money.
+I had so much on my mind
+I thought maybe I'd unwind
+Try out that new roller coaster ride
+And the guide
 
-Behind her, the lawyer put his head in his hands. 'What's wrong with that guy?' he asked.
+Said not to stand
+But that's a demand
+That I couldn't meet
+I got on my feet
+And stood up instead
+And knocked off my head, you see
 
-The old woman replied, 'He is just a sore loser. I bet him $10,000 that the man at the counter of this bank would moon us.'
+Tell me
+Why'd I have to go and get myself decapitated?
+This really is a major inconvenience, oh man, I really hate it
+Such a drag, now ... Can't eat, I can't breathe, I can't snore
+I can't belch or yodel anymore
+Can't spit or blow my nose or even read Sports Illustrated
+
+Oh no
+Why'd I have to go and get myself all mutilated? (yeah, yeah)
+I gotta tell ya, life without a head kinda makes me irritated
+What a bummer
+Can't blink, I can't cough, I can't sneeeze
+But my neck is enjoyin' a pleasant breeze now
+Haven't been the same since my head and I were separated
+No no no
 
