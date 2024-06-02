@@ -1,88 +1,82 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Complicated Song
+Addicted To Caffiene?
 
-Uh huh ... extra cheese
-Uh huh, uh huh ... save a piece for me
+You Know You're Addicted to Caffeine When...
+ 
+1.) You haven't slept since the Clinton Administration.
 
-Pizza party at your house
-I went just to check it out
-Nineteen extra larges
-What a shame
-No one came
+2.) Your next-door neighbors often call to complain about the sound of your chattering teeth.
 
-Just us eatin' all alone
-You said, Take the pizza home
-No sense lettin' all this go to waste
-So then I faced
+3.) Instead of Tic Tacs, you suck on Vivarin.
 
-Pizza all day
-And every day
-This cheese 'round the clock
-Is gettin' me blocked
-And I sure don't care
-For irregularity
+4.) You plan to name your twins 'Cappuccino' and 'Espresso.'
 
-Tell me
-Why'd you have to go and make me so constipated?
-'Cause right now I'd do anything to just get my bowels evacuated
-In the bathroom ... I sit and I wait and I strain
-And I sweat and I clench and I feel the pain
-Oh, should I take laxatives or have my colon irrigated?
-No no no
+5.) On the way to work you get pulled over for speeding and you don't even have your car.
 
-I was feelin' pretty down
-'Till my girlfriend came around
-We're just so alike in every way
-I gotta say
+6.) You kill a guy for trying to switch your regular coffee to decaffeinated Folgers.
 
-In fact, I just thought I might
-Pop the question there that night
-I was kissing her so tenderly
-But woe is me
+7.) You wake up in the middle of the night screaming 'Pepsi! For the love of God, I need Pepsi!'
 
-Who would have guessed
-Her family crest
-I'd suddely spy
-Tattooed on her thigh
-And son-of-a-gun
-It's just like the one on me
+8.) When a Maxwell House commercial comes on, you actually lick the TV screen.
 
-Tell me
-How was I supposed to know we were both related?
-Believe me, if I knew she was my cousin we never would have dated
-What to do now? Should I go ahead and propose
-And get hitched and have kids with eleven toes
-And move to Alabama where that kind of thing is tolerated?
-No no no no no no no
-No no no no no no no
-No no no no 
+9.) You drink so much coffee it starts shooting out your ears.
 
-I had so much on my mind
-I thought maybe I'd unwind
-Try out that new roller coaster ride
-And the guide
+10.) You're shaking like Michael Jackson on his wedding night.
 
-Said not to stand
-But that's a demand
-That I couldn't meet
-I got on my feet
-And stood up instead
-And knocked off my head, you see
+11.) You think sleep is for the weak.
 
-Tell me
-Why'd I have to go and get myself decapitated?
-This really is a major inconvenience, oh man, I really hate it
-Such a drag, now ... Can't eat, I can't breathe, I can't snore
-I can't belch or yodel anymore
-Can't spit or blow my nose or even read Sports Illustrated
+12.) You've just had your 20th cup of coffee within 20 minutes on a Friday afternoon, at 4 o'clock, just so 'the milk doesn't go bad over the weekend.'
 
-Oh no
-Why'd I have to go and get myself all mutilated? (yeah, yeah)
-I gotta tell ya, life without a head kinda makes me irritated
-What a bummer
-Can't blink, I can't cough, I can't sneeeze
-But my neck is enjoyin' a pleasant breeze now
-Haven't been the same since my head and I were separated
-No no no
+13.) You believe that the coffee bean is a vegetable.
+
+14.) You know from experience caffeine tablets don't dissolve in cola. 
+
+15.) You wake up to Mountain Dew, before switching to JOLT.
+
+16.) You can name five flavors of JOLT.
+
+17.) You have a mini-fridge under your desk... and a catheter.
+
+18.) You drink decaf by accident and slip into a coma.
+
+19.) You think Mountain Dew is the stuff great decisions are made of.
+
+20.) You regard the fact that your hands are shaking as a good sign.
+
+21.) You have tattooed across the knuckles of your hands 'JOLT' and 'COLA.'
+
+22.) Your birthday is a national holiday in Colombia.
+
+23.) You go to sleep just to wake up and smell the coffee.
+
+24.) Your coffee pot is next to your bed and your alarm clock is in the kitchen.
+
+25.) You've used an airplane's call button just to get a coffee refill.
+
+26.) You've knelt and prayed before a Starbuck's logo.
+
+27.) Your web page has the Mountain Dew color scheme.
+
+28.) You have distilled Jolt Cola to make it more potent.
+
+29.) The dishes in your house are all coffee cups. 
+
+30.) You see nothing wrong with using water joe (caffeinated water) to make the coffee you use to take your no-doze.
+
+31.) You believe that sleep is simply a poor substitute for coffee.
+
+32.) It's 6:09 AM and you're on your 2nd 20 oz. cup of coffee.
+
+33.) You have to drink some form of caffeinated beverage just to sleep.
+
+34.) You'd rather be beaten over the head with a sledgehammer than give up that first cup of coffee in the morning.
+
+35.) You've given up sex, TV, or all forms of meat for Lent before, but can't make it 40 days without caffeine.
+
+36.) You suck on a used coffee filter (full of coffee grounds) whenever the can runs out of coffee.
+
+37.) You dip espresso beans.
+
+38.) You actually get these jokes and tell them to other friends who are addicted to caffeine.
 
