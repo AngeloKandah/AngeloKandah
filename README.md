@@ -1,8 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Hockey
+Flakes
 
-What do you call a Canadian fire?
+Girl 1: 'This morning my dad gave me soap-flakes instead of corn flakes for breakfast!'
 
-A Calgary Flame.
+Girl 2: 'I bet you were angry with him!'
+
+Girl 1: 'Angry?! I was foaming at the mouth!'
 
