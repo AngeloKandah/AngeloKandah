@@ -1,10 +1,21 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Flakes
+Deft Definations
 
-Girl 1: 'This morning my dad gave me soap-flakes instead of corn flakes for breakfast!'
+GOSSIP: something that no one claims to like but everyone enjoys.
 
-Girl 2: 'I bet you were angry with him!'
+KISS:
+To a geographer: The shortest distance between two curves!
+To a physicist: The contradiction of mouth due to expansion of heart.
+To an accountant: A credit because it is profitable when returned.
 
-Girl 1: 'Angry?! I was foaming at the mouth!'
+OBESITY: A surplus gone to waist.
+
+OLD AGE: When you wink at a woman and she says, 'Anything wrong with your eye, Uncle?' 
+
+RAINCOAT: Thunder wear!
+
+WRITER'S CRAMP: Authoritis!
+ 
+HEMOPHILLIA: A disease of blood with affinity (philia) to 'he' (male) only.
 
