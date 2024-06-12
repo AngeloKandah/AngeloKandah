@@ -1,21 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Deft Definations
+Drunk Weasels
 
-GOSSIP: something that no one claims to like but everyone enjoys.
-
-KISS:
-To a geographer: The shortest distance between two curves!
-To a physicist: The contradiction of mouth due to expansion of heart.
-To an accountant: A credit because it is profitable when returned.
-
-OBESITY: A surplus gone to waist.
-
-OLD AGE: When you wink at a woman and she says, 'Anything wrong with your eye, Uncle?' 
-
-RAINCOAT: Thunder wear!
-
-WRITER'S CRAMP: Authoritis!
- 
-HEMOPHILLIA: A disease of blood with affinity (philia) to 'he' (male) only.
+Two weasels are sitting on a bar stool. One starts to insult the other one. He screams, 'I slept with your mother!' The bar gets quiet as everyone listens to see what the other weasel will do. The first again yells, 'I SLEPT WITH YOUR MOTHER!' The other says, 'Go home dad you're drunk.'
 
