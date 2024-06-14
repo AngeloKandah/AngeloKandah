@@ -1,14 +1,20 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Holmes
+Hot Air Balloon
 
-Sherlock Holmes and his companion Watson are chasing down a criminal and have come to a time in the chase in which it is too late to head back home and too late to keep traveling after him.  Considering that they were in the middle of the woods, Holmes, being as smart as he was, figured that this would happen. He had brought along most of the materials that they would need to go camping.
+A man in a hot air balloon realized he was lost. He reduced altitude and spotted a woman below. He descended a bit more and shouted, 'Excuse me, can you help me? I promised a friend I would meet him an hour ago, but I don't know where I am.'
 
-They set up camp, putting up their tent, making a fire to cook and for the warmth. Soon, they thought it best to go to sleep. In the middle of the night, Holmes wakes up, and immediately wakes up Watson.
+The woman below replied, 'You are in a hot air balloon hovering approximately 30 feet above the ground. You are between 40 and 41 degrees north latitude and between 59 and 60 degrees west longitude.'
 
-After Watson awoke he simply said, 'Watson my friend, look up and tell me, what do you see?'
+'You must be a teacher,' said the balloonist.
 
-After looking up, Watson replies, 'Stars, so many stars out there and so far apart that they truly show us how small and miniscule our planet is to the entire universe.  Thus showing, that our planet is miniscule, that we are basically nothing. Truly the trifle things that we go through every day do mean nothing in its effect to the entire universe.'
+'I am,' replied the woman. 'How did you know?'
 
-Holmes starts shaking his head and says, 'Watson, you bumbling fool, someone has stolen our tent!!!'
+'Well,' answered the balloonist, 'Everything you told me is technically correct, but I have no idea what to make of your information, and the fact is I am still lost. Frankly, you've not been much help so far.'
+
+The woman below responded, 'You must be an administrator.'
+
+'I am,' replied the balloonist, 'But how did you know?'
+
+'Well,' said the woman, 'You don't know where you are or where you are going. You have risen to where you are due to a large quantity of hot air. You made a promise that you have no idea how to keep. You expect someone else to solve your problem, and the fact is you are in exactly the same position you were before we met, but now, somehow, it's my fault.'
 
