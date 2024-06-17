@@ -1,10 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Opposite Day
+Poor Accountants
 
-Johnny and his mother were having a parent-teacher conference.
+What do accountants suffer from that ordinary people don't? 
 
-MOTHER: Johnny really enjoys having you as a teacher, Mrs. Bengal.
-
-JOHNNY: Really? I didn't know it was opposite day!
+Depreciation.
 
