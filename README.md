@@ -1,26 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Choclate Ice Cream
+Worm Overload Recreational Killer
 
-A little boy walks into a ice cream parlor to buy ice cream.
+There is a dangerous virus being passed around electronically, orally, and by hand. 
 
-Worker: Hello little boy, can I help you?
+This virus is called Worm-Overload-Recreational-Killer (WORK). If you receive WORK from any of your colleagues, your boss, or anyone else via any means DO NOT TOUCH IT. This virus will wipe out your private life completely. 
 
-Little boy: Yes, I want some chocolate ice cream, please.
+If you should come into contact with WORK, put your jacket on and take two good friends to the nearest grocery store. Purchase the antidote known as Work-Isolating-Neutralizer-Extract (WINE) or Bothersome-Employer-Elimination-Rebooter (BEER). Take the antidote repeatedly until WORK has been completely eliminated from your system. 
 
-Worker: Sorry, we're out of choclate.
-
-Little boy: Ok, I'll have some...........chocolate.
-
-Worker: Once again, we're out of chocolate, pick another flavor.
-
-Little boy: Hm................ I like chocolate!
-
-Worker thinks to himself.
-
-Worker: So boy, do you want some chocolate?
-
-Little boy: But there is no freakin chocolate!
-
-Worker: Exactly!
+You should forward this warning to five friends. If you do not have five friends, you have already been infected and WORK is controlling your life.
 
