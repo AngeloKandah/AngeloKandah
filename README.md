@@ -1,14 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Duck
+Vegetarian Woman
 
-knock-knock
-
-who's there?
-
-duck
-
-duck who? 
-
-duck I just threw a frisby at you!!
+Why don't vegetarian women scream during orgasms?
+They refuse to admit that a piece of meat gives them pleasure!
 
