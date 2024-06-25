@@ -1,7 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Vegetarian Woman
+Yo Momma
 
-Why don't vegetarian women scream during orgasms?
-They refuse to admit that a piece of meat gives them pleasure!
+Who is Yo Momma? 
+
+Yo Momma doesn't know.
 
