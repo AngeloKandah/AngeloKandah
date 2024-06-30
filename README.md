@@ -1,8 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Offspring
+National Anthem
 
-What do you get when you breed a blonde and a New York gangster?
-
-A juvenile deliquent who spray paints chain link fences.
+What does a blond think the last 2 words of the national anthem are?  Play ball!
 
