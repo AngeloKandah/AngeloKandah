@@ -1,6 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-National Anthem
+Finish
 
-What does a blond think the last 2 words of the national anthem are?  Play ball!
+My therapist told me the way to achieve true inner peace is to finish what I start.
+
+So far today, I have finished two bags of chips and a chocolate cake.
+
+I feel better already.
 
