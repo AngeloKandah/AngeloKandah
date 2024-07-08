@@ -1,10 +1,9 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Man From Rangoon
+Danger!
 
-There once was a man from Rangoon
-Whose farts could be heard on the moon;
-When you'd least expect 'em
-They'd burst from his rectum
-With the force of a raging typhoon!!
+You are in a car travelling at a constant speed. On your left is a valley, and on your right is a fire engine travelling at the same speed as you.
+In front of you is a galloping pig which is the same size as your car, and you can't overtake it. Behind you is a helicopter, flying at ground level; both are travelling at the same speed as you.
+What must you do to get out of this highly dangerous situation?
+Get off the merry-go-round!
 
