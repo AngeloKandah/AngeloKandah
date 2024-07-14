@@ -1,8 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Jewelry
+Protestants
 
-At a jewelry store, a young man bought an expensive locket as a present for his girlfriend. 'Don't you want her name engraved upon it?' asked the jeweler. The young man thought for a moment, and then, ever the pragmatic, steadfastly replied,
+During the Irish Potato famine, a young Irish-Catholic woman was worried about the poverty of her family. She told her parents that she was going to America to seek her fortune. With many tears, they  let her go.
 
-'No, just engrave it: To My One And Only Love. That way, if we break up and she throws it back to me in anger, I can use it again.'
+Years passed, and the woman returned home. She arrived in a private jet, dressed in a gorgeous designer gown, with dazzling, expensive jewelry. Her family was stunned by their daughter's wealth, and a more than a little curious at how she had come by it. The daughter finally confessed. 'I hate to tell you this, but the reason I became so rich was because I became a prostitute.'
+
+Her father immediately collapsed in shock. The doctor was called, and he began to help the man. As the daughter wept at her father's bedside, she sobbed, 'I didn't realize he would be so disappointed to hear I became a prostitute!'
+
+The father sat bolt upright. 'Prostitute?!' he exclaimed. 'I thought you said 'Protestant'!'
 
