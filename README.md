@@ -1,12 +1,26 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Protestants
+Car Airbags
 
-During the Irish Potato famine, a young Irish-Catholic woman was worried about the poverty of her family. She told her parents that she was going to America to seek her fortune. With many tears, they  let her go.
+GENERAL MOTORS INTRODUCES NEW INSTANT-WIN AIRBAGS DETROIT-- 
 
-Years passed, and the woman returned home. She arrived in a private jet, dressed in a gorgeous designer gown, with dazzling, expensive jewelry. Her family was stunned by their daughter's wealth, and a more than a little curious at how she had come by it. The daughter finally confessed. 'I hate to tell you this, but the reason I became so rich was because I became a prostitute.'
+With third-quarter sales sluggish and its share of the domestic market down 11 percent since 1993, General Motors unveiled a new instant-win airbag contest Monday. The new airbags, which award fabulous prizes upon violent, high-speed impact with another car or stationary object, will come standard in all of the company's 1997 cars.
 
-Her father immediately collapsed in shock. The doctor was called, and he began to help the man. As the daughter wept at her father's bedside, she sobbed, 'I didn't realize he would be so disappointed to hear I became a prostitute!'
+'Auto accidents have never been so exciting,' said GM vice-president of marketing Roger Jenkins, who expects the contest to boost 1997 sales significantly. 'When you play the new GM Instant Win Airbag Game, your next fatal collision could mean a trip for two to Super Bowl XXXI in New Orleans. Or a year's worth of free Mobile gasoline.'
 
-The father sat bolt upright. 'Prostitute?!' he exclaimed. 'I thought you said 'Protestant'!'
+Though it does not officially begin until Jan. 1, 1997, the airbag promotion is already being tested in select cities, with feedback overwhelmingly positive. 'As soon as my car started to skid out of control, I thought to myself, 'Oh, boy, this could be it--I could be a big winner!'' said Cincinnati's Martin Frelks, who lost his wife but won $50 Sunday when the Buick LeSabre they were driving hit an oil slick at 60 mph and slammed into an oncoming truck.
+
+'When the car stopped rolling down the embankment, I knew Ellen was dead, but all I could think about was getting the blood and glass out of my eyes so I could read that airbag!' 
+
+'It's really addictive,' said Sacramento, CA, resident Marjorie Kamp, speaking from her hospital bed, where she is listed in critical condition with severe brain hemorrhaging and a punctured right lung.
+
+'I've already crashed four cars trying to win those Super Bowl tickets, but I still haven't won. I swear, I'm going to win those tickets--even if it kills me!' Kamp said that as soon as she is well enough, she plans to buy a new Pontiac Bonneville and drive it into a tree.
+
+GM officials are not surprised the airbag contest has been so well received. 'In the past, nobody really liked car wrecks, and that's understandable. After all, they're scary and dangerous and, sometimes, even fatal,' GM CEO Paul Offerman said. 'But now, when you drive a new GM car or truck, your next serious crash could mean serious cash.
+
+'Who wouldn't like that?' Offerman added that in the event a motorist wins a prize but is killed, that prize will be awarded to the next of kin. According to GM's official contest rules, odds of winning the grand prize, a brand-new 1997 Cutlass Supreme, are 1 in 43,000,000.
+
+Statistical experts, however, say the real chances of winning are significantly worse. 'If you factor in the odds of getting in a serious car accident in the first place--approximately 1 in 720,000--the actual odds of winning a prize each time you step in your car are more like 1 in 31 trillion.'
+
+Further, even if one is in an accident, there is no guarantee the airbag will inflate. 'I was recently broadsided by a drunk driver in my new Chevy Cavalier,' said Erie, PA, resident Jerry Polaner. 'My car was totaled, and because it was the side of my car that got hit, my airbag didn't even inflate. But what really gets me is the fact that the drunk driver, who rammed my side with the front of his 1997 Buick Regal, won a $100 Office Depot gift certificate. That's just wrong.'
 
