@@ -1,9 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-TIRE TRACKS
+Coast Gaurd Bumper Sticker
 
-Q: Why did the blonde have tire tracks on her back?
+This is off a Coast Guard bumper sticker:
 
-
-A: From crawling across the street when the sign said 'DON'T WALK'
+Support Search and Rescue: GET LOST!
 
