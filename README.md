@@ -1,8 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Asking For Directions
+Nurse Nurse
 
-Why was Moses wandering through the desert for 40 years?
-
-Because blokes refuse to ask for directions.
+Veronica: Nurse, I am losing my hair!
+Nurse: Okay, what size paper bag do you need?
 
