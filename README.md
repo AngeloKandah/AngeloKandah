@@ -1,7 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Nurse Nurse
+Yo Momma So Hairy...
 
-Veronica: Nurse, I am losing my hair!
-Nurse: Okay, what size paper bag do you need?
+Yo Momma so hairy, she got afros around her nipples!
 
