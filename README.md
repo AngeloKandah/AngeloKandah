@@ -1,11 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Don't Eat the Brown Ones
+Strawberry Issues
 
-A guy took his girlfriend to the movies. During the pre-views, she asked him if he would go and buy her some M JOKE Ms. 
-When he returned with her candy, she opened the bag, picked out all the brown ones and threw them away. 
-
-'What did you do that for?' he asked her. 
-
-'I'm allergic to chocolate!' she replied.
+There's this guy he goes to see the doctor and says, 'Doctor, Doctor, I have a terrible problem. I have a strawberry stuck up my bottom.'
+The doctor says, 'It's ok, I'll give you some cream to put on it.'
 
