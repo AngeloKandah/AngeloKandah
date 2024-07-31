@@ -1,7 +1,18 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Strawberry Issues
+Jonah's Fate
 
-There's this guy he goes to see the doctor and says, 'Doctor, Doctor, I have a terrible problem. I have a strawberry stuck up my bottom.'
-The doctor says, 'It's ok, I'll give you some cream to put on it.'
+A little girl spoke to her teacher about whales. 
+
+The teacher said it was physically impossible for a whale to swallow a human because even though it is a very large mammal, its throat is very small. 
+
+The little girl said, 'But how can that be? Jonah was swallowed by a whale.' 
+
+Irritated, the teacher reiterated that a whale could not swallow a human. 'It is physically impossible!' she said. 
+
+Undaunted, the little girl said, 'Well, when I get to heaven I will ask Jonah.' 
+
+To this, the teacher said, 'What if Jonah went to hell?' 
+
+The little girl replied, 'Then YOU ask him!'
 
