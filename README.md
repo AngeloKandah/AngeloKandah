@@ -1,19 +1,15 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Written Mistakes 2 (Now W/ Dumb Bush Quotes)
+Blonde Football
 
-1. On a mall child's cart bag
-   Do not put child in bag (Who does?)
-
-2. On food court restaurant counters
-   Warning: Touching hot surfaces may burn you (Wanna try?)
-
-3a. Bush on war in Iraq
-    'We're not going to have any casualties.' (Where are we now, huh?)
-
-3b. Bush's description of the White House
-    'It is white.' (WOW! Who knew???)
-
-3c. Our future
-    'The future will look better tommorow.' (That settles it, we're all gonna die.)
+A guy took his blonde girlfriend to a football game
+for the first time.
+After the game he asked his girlfriend how she liked
+the game. 'Oh, I really liked it,' she said, 'but I
+just couldn't understand why they were killing each
+other for 25 cents.'
+What on earth do you mean???'
+Well, I saw them flip a coin and one team got it and
+then for the rest of the game all they kept screaming
+was: 'Get the quarter back! Get the quarter back!'
 
