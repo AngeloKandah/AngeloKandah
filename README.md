@@ -1,24 +1,39 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Bull
+Why Muslim Commit Suciide
 
-There were two bulls, a young one named George and an old one named Sam. It was that time of year to satisfy the local female population, and young George was pretty excited.
+Everyone seems to be wondering why Muslims are so quick to commit
+suicide.
 
-'Sam, Sam, can I go down to those heifers over there?' asked George.
+Let's see now: No Jesus, No Wal-Mart, No Television, No Cheerleaders, No
+baseball, No Football, No Basketball, No Hockey, No Golf, No Tailgate
+Parties, No Home Depot.
 
-'George, relax. Here is how it works. We'll wait until they're lined up at the feed trough so we can have our way with the ladies in a nice orderly fashion.' said Sam.
+No Pork BBQ, No Hot Dogs, No Burgers, No Lobster, No Shellfish, or even
+frozen fish sticks, No Gumbo, No Jambalaya.
 
-'Okay, I can do that.' George answered.
+More than one wife.
 
-Well, feeding time came and all the heifers were lined up just like Sam said and George was all excited to go down there, but Sam had a few more instructions.
+Rags for clothes and towels for hats.
 
-'Now George, here is how this is gonna work. I'll start at one end and you can start at the other. We'll meet in the middle' said Sam.
+Constant wailing from the guy next door because he's sick and there are
+no doctors.
 
-'OK, OK, let's go!' said George.
+Constant wailing from the guy up in the tower.
 
-'Hang on George!. One more important thing to remember. These gals will let us have our way but you have to show some respect and be polite. OK?' said Sam.
+No chocolate cookies. No Christmas.
 
-'Sure' says George.
+You can't shave. Your wives can't shave.
 
-Well, they go on down to the heifers all lined up. George starts at one end and Sam at the other. George is pretty excited, but he remember's Sam's instructions about being polite, so as he is going along he makes sure to say - 'Thank you ma'am, thank you ma'am, thank you ma'am, thank you ma'am, thank you ma'am, sorry Sam, thank you ma'am.'
+You can't shower to wash off the smell of donkey being cooked over
+burning camel dung.
+
+The women have to wear baggy dresses and veils at all times.
+
+Your bride is picked by someone else. She smells just like your donkey,
+but your donkey has a better disposition.
+
+Then they tell you that when you die it all gets better.
+
+I mean, really, IS THERE A MYSTERY HERE?
 
