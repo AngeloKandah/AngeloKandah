@@ -1,17 +1,16 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Now Get Your Mind Out of the Gutter....
+I'm Going Nuts!
 
-I shall seek and find you,
-I shall take you to bed and have my way with you,
-I will make you ache, shake, and sweat until you moan and groan.
-I will make you beg for mercy, you will beg for me to stop.
-I will exhaust you to the point that you will be relieved when I'm finished with you.
- You will be weak for days.
-You have been warned, my love, by...
+Tommy went to a psychiatrist. 'Doc,' he said, 'I've got trouble. Every time I get into bed, I think there's somebody under it. I get under the bed, I think there's somebody on top of it. Top, under, top, under. You gotta help me, I'm going crazy!' 
 
+'Just put yourself in my hands for two years,' said the shrink. 'Come to me three times a week, and I'll cure your fears.' 
+'How much do you charge?' 
+'A hundred dollars per visit.' 
+'I'll sleep on it,' said Tommy. 
 
-
-THE FLU!!
-Now get your mind out of the gutter and go get a flu shot.
+Six months later the doctor met Tommy on the street. 'Why didn't you ever come to see me again?' asked the psychiatrist. 
+'For a hundred bucks a visit? A bartender cured me for ten dollars.' 
+'Is that so! How?' 
+'He told me to cut the legs off the bed!'
 
