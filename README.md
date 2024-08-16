@@ -1,16 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-I'm Going Nuts!
+Overseas Tease
 
-Tommy went to a psychiatrist. 'Doc,' he said, 'I've got trouble. Every time I get into bed, I think there's somebody under it. I get under the bed, I think there's somebody on top of it. Top, under, top, under. You gotta help me, I'm going crazy!' 
+A newlywed sailor is informed by the navy that he's going to be stationed a long way from home on a remote island in the South Pacific for 2 years. A few weeks after he gets there he really starts to miss his new wife, so he writes her a letter.
 
-'Just put yourself in my hands for two years,' said the shrink. 'Come to me three times a week, and I'll cure your fears.' 
-'How much do you charge?' 
-'A hundred dollars per visit.' 
-'I'll sleep on it,' said Tommy. 
+'My darling,' he writes, 'it looks like we're going to be apart for a very long time. Already I'm starting to miss you and we're constantly surrounded by young, attractive native girls. The temptation's terrible. I need some kind of hobby to keep my mind off them.'
 
-Six months later the doctor met Tommy on the street. 'Why didn't you ever come to see me again?' asked the psychiatrist. 
-'For a hundred bucks a visit? A bartender cured me for ten dollars.' 
-'Is that so! How?' 
-'He told me to cut the legs off the bed!'
+His wife sends him back a harmonica with a note reading, 'Why don't you learn to play this?'
+
+Eventually his tour of duty comes to an end and he rushes back to his wife. 'Darling' he says, 'I can't wait to get you into bed so that we can make passionate love!'
+
+But she stops him with a wave of her hand. 'First, let's see how well you play that harmonica.'
 
