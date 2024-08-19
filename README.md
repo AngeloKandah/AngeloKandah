@@ -1,10 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Breakfast at Looooong Last (!)
+Weird Facts
 
-Two children ordered their mother to stay in bed one Mother's Day morning. As the smell of bacon floated up from the kitchen, she lay in eager anticipation the lovely breakfast her helpful, caring children were making for her.
+A 'jiffy' is an actual unit of time for 1/100th of a second.
 
-However, after a good long wait, she finally went downstairs to investigate. She found them both sitting at the table eating bacon and eggs.
+A dime has 118 ridges around the edge.
 
-'As a surprise for Mother's Day,' one explained, 'we decided to cook our own breakfast.'
+A cat has 32 muscles in each ear.
+
+A dragonfly has a life span of 24 hours.
+
+A goldfish has a memory span of 3 seconds.
 
