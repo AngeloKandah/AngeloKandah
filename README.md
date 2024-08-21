@@ -1,43 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-What are They Doing?!
+For Mother Superior
 
-Guy:  I'm having a problem with it.
-Girl:  That's not surprising, it's very hard when you first learn.
-
-
-Guy: It's not working. I can't get it up.
-Girl: You just have to relax.  It'll happen. You just have to work at it.
-
-
-Guy: Alright, I'm supposed to do what with my tongue again??
-Girl: Your tongue is the key, you have to use it like a tool. You have to know where to put your tongue where it's needed.  Feel for problem areas.
-
-
-Guy: pbpbpbpb. man. this sucks.
-Girl:  Try again. just go slower.
-
-
-Guy: Its too hard!
-Girl: Soften it up. 
-
-
-Guy: Show me again?
-Girl: *shows him*
-
-
-Guy: Alright, let me try now.
-Girl: Your first time is an experience you'll always remember.  I know you can do it!
-
-
-Guy: *tries again* pbpbpbb sssssssssss.... *POP!*
-Girl: You did it!
-
-
-
-
-Guy: Yea... learning to blow bubbles with bubble gum is too hard, I'll stick with lollipops, thanks.
-Girl: Still,  I knew you could do it!
-
-*Duh! What'd you think they were doing?!*
+A nun walks into a liquor store and asks to buy a fifth of whiskey. She says it's for Mother Superior's constipation, so the owner says ok. She buys the booze and leaves. Two hours later, the owner closes store and walks through the park on his way home. As he's walking, he spots the same nun sitting on a park bench, roaring drunk. 'Shame on you, Sister', he says, 'I thought that whiskey was for Mother Superior's constipation.' 'It is,' she slurrs. 'When she sees me, she'll crap!'
 
