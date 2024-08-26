@@ -1,10 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Knock-Knock
+In Golf...
 
-Knock-Knock
-Who's there?
-Who's There. 
-Who's there Who?
-I'm supposed to say Who's there!
+In golf, some people tend to get confused with all the numbers. They shoot a six, yell fore, and write five.
 
