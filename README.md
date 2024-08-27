@@ -1,6 +1,9 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-In Golf...
+The Cliff
 
-In golf, some people tend to get confused with all the numbers. They shoot a six, yell fore, and write five.
+Why did the penny jump off the cliff and not the quarter?
+
+
+Because the quarter had more cents!
 
