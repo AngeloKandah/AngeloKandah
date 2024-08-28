@@ -1,9 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Cliff
+What Do You Call A Man...
 
-Why did the penny jump off the cliff and not the quarter?
+What do you call a man who put the toilet seat down after use?
 
-
-Because the quarter had more cents!
+Don't know it's never happened.
 
