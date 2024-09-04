@@ -1,14 +1,20 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Doctor
+Datsun Cogs (Cats and Dogs!)
 
-One night a man knocked at the doctor's door. When the door opened -
+Although cats are rather delicate creatures, and they are subject to a good many ailments, I never heard of one who suffered from insomnia.
 
-Doctor : What is the matter?
+Dogs and cats instinctively know the exact moment their owners will wake up. Then they wake them 10 minutes sooner.
 
-The man : Doctor,a dog bit my leg.
+Dogs shed, cats shred.
 
-Doctor : Don't you know that I don't see patients after 9 pm?
+No one appreciates the very special genius of your conversation as the dog does.
 
-The man : I know that very well.Perhaps the dog was not aware of it.
+I hope to be the kind of person my dog thinks I am.
+
+People that hate cats will come back as dogs in their next life.
+
+We wonder why the dogs always drink out of our toilets, but look at it from their point of view: Why do humans keep peeing into their water bowls?
+
+Women and cats will do as they please... men and dogs should relax and get used to the idea.
 
