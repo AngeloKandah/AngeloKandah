@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Faster Than The Bear
+An Interesting Thing About Golf...
 
-You don't have to go faster than the bear, you just have to go faster than the slowest guy running from the bear.
+An interesting thing about golf is that no matter how badly you play, it is always possible to get worse.
 
