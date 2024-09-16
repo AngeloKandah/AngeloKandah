@@ -1,6 +1,13 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-An Interesting Thing About Golf...
+More
 
-An interesting thing about golf is that no matter how badly you play, it is always possible to get worse.
+Q: What do peroxide blondes and black men have in common? 
+A: They both have black roots. 
+
+Q: Why are there no dumb brunettes? 
+A: Peroxide. 
+
+Q: How do you tell if a bleach blonde did your landscaping? 
+A: The bushes are darker than the rest of the yard.
 
