@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Sign
+Marriage
 
-Laundromat sign:
+Marriage
 
-Automatic Washing Machines: Please remove all your clothes when the light goes out.
+'Marriages don't last. When I meet a guy, the first question I ask myself is: is this the man I want my children to spend their weekends with?' - Rita Rudner
 
