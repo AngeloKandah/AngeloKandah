@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Rabinovich
+Oshakati Taxi Driver
 
-Post-Soviet Russia. Rabinovich calls the Pamyat headquarters: 'Is it true that we Jews sold out Mother Russia?' In return he hears an affirmation accompanied by antisemitic slurs. 'Oh good. So where can I get my share?'
+What is the new name for a taxi in Oshakati? A computer. Why? It has windows, always crashes, JOKE is driven by a thin black floppy with a virus.
 
