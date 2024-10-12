@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Doorbell
+Sears
 
-Yo Momma so stupid when she heard the doorbell she opened the microwave and said 'Hello???'
+You're about as useful as a bargain hunter in Sears!
 
