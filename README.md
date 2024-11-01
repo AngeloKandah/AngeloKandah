@@ -1,8 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-It is Inevitable
+Bright
 
-The three stages of sex in marriage:
-
-Tri-weekly, Try-weekly, Try-weakly.
+Why did the teacher have to put on her glasses during class?
+Because the kids were to bright!
 
