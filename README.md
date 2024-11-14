@@ -1,9 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-2 Women Smoking
+I Wish There was Something Between Us
 
-2 old ladies are at the bus stop waiting for a bus when it starts to rain. Not wanting to lose her cigarette, one of the old ladies took a condom and a pair of scissors out of her purse, snipped off the end of the condom and slid it over her cigarette.
-The 2nd lady noticed this and thought it was a brilliant idea, so the next day she goes to the pharmacy and asks for a pack of condoms.
-The man says, 'Sure, what size would you like?'
-The woman, thinking about her cigarettes, says, 'One that will fit a Camel.'
+There was a really dramatic woman and a small man.
+
+The small man worked at a ballroom.  The woman got dressed up all fancy and went to the ballroom. She went up to the man and said, 'I hope there is something between us!
+
+And the little man said, 'Me too!  A continent!'
 
