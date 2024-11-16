@@ -1,14 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Cargo
+Dog Wood Tree
 
-Knock-Knock.
-
-Who's There?
-
-Cargo.
-
-Cargo Who?
-
-Car Go 'Beep, Beep!'
+Farmer: This is a dogwood tree.
+Cityman: How can you tell?
+Farmer: By its bark
 
