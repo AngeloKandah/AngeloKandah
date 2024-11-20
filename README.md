@@ -1,6 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-IPhone 3G
+New Driver
 
-iPhone is a revolutionary portable communications device, and now it's gotten even better with the iPhone 3G. Keeping your calendar up-to-date is a snap. You can go back to the day you spent $600 on the first generation iPhone, then scroll forward to see the day the price was lowered by $200. You can even view pictures of your reaction when you found out you might as well have thrown $200 bills into a urinal. And peed on them. Use the all-new scientific calculator to tally how much the new iPhone 3G is going to cost you, factoring in the 15 to 25 percent increase in monthly service charges. Don't forget to subtract what you could sell your first generation iPhone for. The new iPhone has GPS, so you can easily find your current location, and how long it will take you to walk home from there. Because damn if you have any money left for gas. And don't forget: lightning-fast broadband speed anywhere you go. Large documents, such as eviction notices and letters from collection agencies, will download faster than a speeding bullet, coming to offer you the sweet release of death. iPhone 3G: I haven't eaten in days.
+Martin had just received his brand new driver's license. The family troops out to the driveway, and climbs in the car, where he is going to take them for a ride for the first time. Dad immediately heads for the back seat, directly behind the newly minted driver. 
+
+'I'll bet you're back there to get a change of scenery after all those months of sitting in the front passenger seat teaching me how to drive,' says the beaming boy to his father. 
+
+'Nope,' comes dad's reply, 'I'm gonna sit here and kick the back of your seat as you drive, just like you've been doing to me all these years.'
 
