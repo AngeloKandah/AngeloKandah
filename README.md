@@ -1,6 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Leper
+Golf Pro
 
-So anyway, this leper goes into a bar. And this guy is in a really advanced state of decay, you know, like the werewolf's friend in American Werewolf in London, towards the end of the movie... Anyhow, he goes into this bar, sits down at the bar and says to the bartender, 'Look, before I order, I'd like you to know that I'm aware of how my appearance affects some people, and I'll fully understand it if you refuse to serve me.' The bartender, who is looking a little pasty-faced, says, 'No, sir, I am a professional, and you are my customer. It is my pleasure to serve you. What would you like?' 'A shot of whiskey, if it's not too much trouble.' 'Coming right up, sir.' The bartender pours the drink, then goes to the area behind the bar, ostensibly to wash some glasses, but the leper can hear him puking his guts out. When the bartender returns a moment later, wiping the corner of his mouth with a rag, the leper says, 'Look, I told you I would understand. You didn't have to go through that for my sake!' To which the bartender replied, 'I know that, sir, and I would like to assure you that I would have had no trouble, but for the last 5 minutes or so, the drunk next to you has been dipping his crackers in your arm.'
+A husband and wife want to take golf lessons from a pro at a local country club. The man and woman meet the pro and head onto the driving range. The man goes up to hit first. He swings and hits the ball 100 yards. The golf pro says not bad. 
+
+Golf pro: 'Now hold the club as firm as you hold your wife's breasts'. The man follows instructions and hits the ball 300 yards. 
+
+The golf pro says 'Excellent!' Now the woman takes her turn. Her ball goes 30 yards. 
+
+Golfpro: 'Not bad, try holding the club like you hold your husbands dick.' She swings and the ball goes 10 yards. 
+
+Golfpro: 'Not bad, but now try taking the club out of your mouth and hit the ball.'
 
