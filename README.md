@@ -1,14 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Golf Pro
+The Gladiator
 
-A husband and wife want to take golf lessons from a pro at a local country club. The man and woman meet the pro and head onto the driving range. The man goes up to hit first. He swings and hits the ball 100 yards. The golf pro says not bad. 
-
-Golf pro: 'Now hold the club as firm as you hold your wife's breasts'. The man follows instructions and hits the ball 300 yards. 
-
-The golf pro says 'Excellent!' Now the woman takes her turn. Her ball goes 30 yards. 
-
-Golfpro: 'Not bad, try holding the club like you hold your husbands dick.' She swings and the ball goes 10 yards. 
-
-Golfpro: 'Not bad, but now try taking the club out of your mouth and hit the ball.'
+A gladiator was having a rough day at the arena-his opponent had sliced off both of his arms. Nevertheless, he fought on, kicking and biting as furiously as he could. But when his opponent lopped off both feet, the gladiator had no choice but to give up. He was now both unarmed and defeated.
 
