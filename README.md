@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Gladiator
+Never Have an Eskimo As a Meteorologist
 
-A gladiator was having a rough day at the arena-his opponent had sliced off both of his arms. Nevertheless, he fought on, kicking and biting as furiously as he could. But when his opponent lopped off both feet, the gladiator had no choice but to give up. He was now both unarmed and defeated.
+'Tomorrow is a boiling hot day, at 10 degrees Fahrenheit. The day after that is the same temperature, as well as the next and the next. Won't these temperatures ever cool down?'
 
