@@ -1,6 +1,20 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Never Have an Eskimo As a Meteorologist
+The Good Stuff
 
-'Tomorrow is a boiling hot day, at 10 degrees Fahrenheit. The day after that is the same temperature, as well as the next and the next. Won't these temperatures ever cool down?'
+What does a blonde and a screendoor have in common?
+
+
+The harder you bang them the looser they get.
+
+
+Why did the blonde climb the glass wall?
+
+
+To see what was on the other side.
+
+
+What is the first thing a blonde does in the morning?
+
+Get dressed and go home
 
