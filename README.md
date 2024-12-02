@@ -1,20 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Good Stuff
+Powerful Gas
 
-What does a blonde and a screendoor have in common?
-
-
-The harder you bang them the looser they get.
-
-
-Why did the blonde climb the glass wall?
-
-
-To see what was on the other side.
-
-
-What is the first thing a blonde does in the morning?
-
-Get dressed and go home
+There was a question in our company newsletter asking about whether they could water the flowers in the bathroom since they were looking wilted and sick. The response was, 'The flowers are artificial.'
+[Editor's note: Evidently some employees created a rest room gas cloud powerful enough to wilt artificial plants. You have to admire that on some level]
 
