@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Beaver
+Three Bears
 
-Save a tree, eat a beaver!!
+Then there were the three bears.  One married a giraffe.  The other two put him up to it.
 
