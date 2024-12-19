@@ -1,6 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Dads' Jobs
+The Man From Nantucket
 
-Three boys are in the schoolyard bragging about their fathers. The first boy says, 'My Dad scribbles a few words on a piece of paper, he calls it a poem, they give him $50.' The second boy says, 'That's nothing. My Dad scribbles a few words on a piece of paper, he calls it a song, they give him $100.' The third boy says, 'I got you both beat. My Dad scribbles a few words on a piece of paper, he calls it a sermon. And it takes eight people to collect all the money!'
+There once was a man from Nantucket,
+Whose cock was so long he could suck it,
+Said he with a grin,
+As he wiped off his chin,
+If my ear was a cunt, I could fuck it!
 
