@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Yo Momma So Dark
+Women
 
-Yo momma is so dark, she's not afraid of the dark, the dark is afraid of her.
+All women are emotional drag queens, and i married their queen
 
