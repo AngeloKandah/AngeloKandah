@@ -1,6 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-So Fat
+Sleeping?
 
-Yo mama's so fat, when she walks by the television set you miss three episodes.
+What should a woman say to a man she's just had sex with?
+
+Whatever she wants. He's sleeping.
 
