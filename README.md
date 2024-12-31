@@ -1,33 +1,46 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Bill Clinton
+What the Doc Means
 
-One Friday morning, a teacher came up with a novel 
-way to motivate her class. She told them that she 
-would read a quote and the first student to correctly 
-identify who said it would receive the rest of the 
-day off. 
+'Well, what have we here...?' 
+He has no idea and is hoping you'll give him a clue.
 
-She started with 'This was England's finest hour.' 
-Little Suzy instantly jumped up and said, ' Winston 
-Churchill.' 
+'Well, we're not feeling so well today, are we...?' 
+I'm stalling for time. 
 
-'Congratulations,' said the teacher 'you may go 
-home.' 
+'If it doesn't clear up in a week, give me a call.' 
+I don't know what it is. Maybe it will go away by itself. 
 
-The teacher then said, 'Ask not what your country can 
-do for you.' 
-Before she could finish this quote, another young 
-lady belts out, 'John F. Kennedy'. 
+'Let me check your medical history.' 
+I want to see if you've paid your last bill before spending anymore time with you. 
 
-'Very good' says the teacher, 'you may go.' 
+'Well, now, we have some good news and some bad news.' 
+The good news is, I'm going to buy that new BMW. The bad news is, you're going to pay for it. 
 
-Irritated that he has missed two golden 
-opportunities, Little Johnny said, 'I wish those 
-girls would just shut up.' 
+'This should be taken care of right away.' 
+I'd planned a trip to Hawaii next month but this is so easy and profitable that I want to fix it before it cures itself. 
 
-Upon overhearing this comment, the outraged teacher 
-demanded to know who said it. Johnny instantly rose 
-to his feet and said, 'Bill Clinton. I'll see you 
-Monday.'
+'Let me schedule you for some lab tests.' 
+I have a forty percent interest in the lab. 
+
+'Let's see how it develops.' 
+Maybe in a few days it will grow into something that really needs to be cured. 
+
+'I'd like to prescribe a new drug.' 
+I'm writing a paper and would like to use you for a guinea pig. 
+
+'That's quite a nasty looking wound.' 
+I think I'm going to throw up. 
+
+'This may smart a little.' 
+Last week two patients almost bit off their tongues. 
+
+'This should fix you up.' 
+The drug company slipped me some big bucks to prescribe this stuff. Hope it works... 
+
+'Everything seems to be normal.' 
+Rats! I guess I can't buy that new beach condo after all. 
+
+'I'd like to run some more tests.' 
+I can't figure out what's wrong. Maybe the kid in the lab can solve this one.
 
