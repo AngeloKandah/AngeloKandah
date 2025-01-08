@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Shoo Fly
+Goose Meat
 
-Two male flies are buzzing around, cruising for good looking female flies. One spots a real cutie sitting on a pile of horse manure and dives down toward her. 'Pardon me,' he says, turning on his best charm, '...but is this stool taken?'
+What was the most-frequently used word at the German-German border? 'Goose meat'. (GÃ¤nsefleisch, sounds like the first three words in Genn' se vleisch mal 'n Gofferraum offmachn? in the Saxon accent, KÃ¶nnen Sie vielleicht mal den Kofferraum aufmachen? in standard German, which means Could you please open the trunk? )
 
