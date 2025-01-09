@@ -1,6 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Goose Meat
+President
 
-What was the most-frequently used word at the German-German border? 'Goose meat'. (GÃ¤nsefleisch, sounds like the first three words in Genn' se vleisch mal 'n Gofferraum offmachn? in the Saxon accent, KÃ¶nnen Sie vielleicht mal den Kofferraum aufmachen? in standard German, which means Could you please open the trunk? )
+Did you hear about the blonde who ran for president?
+
+She got tired after 2 miles and dropped out of the running.
 
