@@ -1,8 +1,9 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-President
+Cow and Rabbit
 
-Did you hear about the blonde who ran for president?
+Q: What's the difference between a rabbit and a cow?
 
-She got tired after 2 miles and dropped out of the running.
+
+A: One's a rabbit and one is a cow
 
