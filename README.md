@@ -1,9 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Cow and Rabbit
+How Come?
 
-Q: What's the difference between a rabbit and a cow?
-
-
-A: One's a rabbit and one is a cow
+How come we choose from just two people to run for president and 50 for Miss America?
 
