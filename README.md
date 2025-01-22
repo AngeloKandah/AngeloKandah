@@ -1,7 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Well-Hung
+A Greater Insult
 
-How do you tell when a lawyer is well-hung?
-When you can't fit your fingers between the rope and his throat.
+A biker walks into a yuppie bar and shouts, 'All lawyers are assholes!' He looks around, obviously hoping for a challenge. Finally a guy comes up to him, taps him on the shoulder, and says, 'Take that back.' The biker says, 'Why? Are you a lawyer?' 'No, I'm an asshole.'
 
