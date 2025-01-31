@@ -1,13 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Circumcised
+Trying to Fix a Clock
 
-A teacher noticed that a little boy at the back of the class was squirming around, scratching his crotch, and not paying attention. She went back to find out what was going on. He was quite embarrassed, and
-whispered that he had just recently been circumcised and he was quite itchy. The teacher told him to go down to the principal's office. He was to telephone his mother and ask her what he should do about it. 
+Harvey's grandfather clock suddenly stops working right one day, so he loads it into his van and takes it to a clock repair shop. 
 
-He did as he was told and returned to his class.
-Suddenly, there was a commotion at the back of the room. She went back to investigate, only to find him sitting at his desk, with his penis hanging out. 'I thought I told you to call your mom!' she said. 
-'I did,' he said, 'And she told me that if I could stick it out till noon, she'd come and pick me up from school.'
-       
- KIDS, DON'T YOU JUST LOVE THEM???
+In the shop is a little old man who insists he is Swiss, and has a heavy German accent. He asks Harvey, 'Vat sims to be ze problem?' 
+
+Harvey says, 'I'm not sure, but it doesn't go 'tick-tocktick -tock' anymore. Now it just goes 'tick...tick...tick.'' 
+
+The old man says, 'Mmm-Hm!' and steps behind the counter, where he rummages around a bit. He emerges with a huge flashlight and walks over the grandfather clock. 
+
+He turns the flashlight on, and shines it directly into the clocks face. Then he says in a menacing voice, 'Ve haf vays of making you tock!'
 
