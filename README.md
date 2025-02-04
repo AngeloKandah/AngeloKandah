@@ -1,23 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Bride
+My Summer Vacation
 
-The Tearful Bride...
+Summer was over and the teacher was asking the class about their vacations.
 
-A new young blonde bride calls her mother in tears.
-She sobs, 'Robert doesn't appreciate what I do for him.'
+She turned to little Johnny and asked what he did over the summer. 'We visited my grandmother in Minneapolis, Minnesota,' he said.
 
-'Now, now,' her mother comforted, 'I am sure it was all just a misunderstanding.'
+'That sounds like an excellent vocabulary word,' the teacher said, 'Can you tell the class how you spell that?'
 
-'No, mother,' you don't understand.
-'I bought a frozen turkey roll and he yelled and screamed at me about the price!'
-
-'Well, the nerve of that lousy cheapskate!' says her mom.
-'Those turkey rolls are only a few dollars.'
-
-'No, mother it wasn't the price of the turkey, it was the airplane ticket.'
-'Airplane ticket.... What did you need an airplane ticket for?'
-
-'Well mother, when I went to fix it, I looked at the directions on the package and it said -
-'Prepare from a frozen state,' so I flew to Alaska!'
+Little Johnny thought about it and said, 'Come to think of it, she lives in Ohio.'
 
