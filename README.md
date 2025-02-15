@@ -1,20 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-MYASS
+Dream
 
-This memo is to announce the development of a new software system which will be Year 2000 compliant. known as:
+Jack tells his shrink, 'Last night I dreamed you were my mother.'
 
-'Millennia Year Application Software System' (MYASS).
+'How did you feel about it after you woke up?' asks the psychiatrist.
 
-Next Monday there will be a meeting in which I will show MYASS to everyone. We will hold demonstrations throughout the month so that all employees will have an opportunity to get a good look at MYASS.
+'I overslept,' answers Jack. 'Then I remembered I had an appointment with you, so I grabbed a Coke and some cookies for breakfast and came right over.  I didn't really have time to think about it.  What does it mean, doc?'
 
-We have not addressed networking aspects yet, so currently only one person at a time can use MYASS. This restriction will be removed after MYASS expands.
-
-Some employees have begun using the program already. This morning I walked into a subordinate's office and was not surprised to find that he had his nose buried in MYASS. Some of the less technical people may be somewhat afraid of MYASS.
-
-Last week my secretary said to me, 'I'm a little nervous, I never put anything in MYASS before.' I helped her through the first time and afterward she admitted that it was relatively painless and she was actually looking forward to doing it again, and was even ready to kiss MYASS.
-
-There have been concerns over the virus that was found in MYASS upon initial installation, but the virus has been eliminated and we were able to save MYASS. In the future, however, protection will be required prior to entering MYASS.
-
-This database will encompass all information associated with the business. As you begin using the program, feel free to put anything you want in MYASS. As MYASS grows larger, we envision a time when it will be commonplace for a supervisor to hand work to an employee and say, 'Here, stick this in MYASS.'
+'A Coke and some cookies?' says the psychiatrist.  'You call that breakfast?'
 
