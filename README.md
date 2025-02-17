@@ -1,8 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Attack of the Abstract Noun
+If Brains Were Fuel!!!
 
-'An abstract noun,' the teacher said, 'is something you can think of, but you can't touch it. Can you give me an example of one?' 
-
-'Sure,' a teenage boy replied. 'My father's new car.'
+If brains were fuel, you wouldn't have enough to power an ant's motorcycle around the edge of a penny.
 
