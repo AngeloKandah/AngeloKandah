@@ -1,22 +1,42 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Two Prostitutes
+Gift Registry
 
-Two prostitutes were riding around town with a sign on top of their car which said:
+Jacob, age 92, and Rebecca, age 89, are quite excited about their decision to get married. They go for a stroll to discuss the wedding and on the way they pass a drugstore. Jacob suggests they go in.
 
-'Two Prostitutes -- $50.00.'
+Jacob addresses the man behind the counter. 'Are you the owner?'
 
-A policeman, seeing the sign, stopped them and told them they'd either have to remove the sign or go to jail. Just at that time, another car passed with a sign saying:
+The pharmacist answers, 'Yes.'
 
-'JESUS SAVES.'
+Jacob: 'We're about to get married. Do you sell heart medication?'
 
-One of the girls asked the officer,
+Pharmacist: 'Of course we do.'
 
-'How come you don't stop them?!'
+Jacob: 'How about medicine for circulation?'
 
-'Well, that's a little different,' the officer smiled . . . 'Their sign pertains to religion.'
+Pharmacist: 'Many kinds.'
 
-So the two ladies of the night frowned as they took their sign down and drove off. The following day found the same police officer in the area when he noticed the two ladies driving around with a large sign on their car again. Figuring he had an easy arrest, he began to catch up with them when he noticed the new sign which now read:
+Jacob: 'Medicine for rheumatism, scoliosis?'
 
-'Two Fallen Angels Seeking Peter -- $50.00.'
+Pharmacies: 'Definitely.'
+
+Jacob: 'How about Viagra?'
+
+Pharmacist: Hesitates slightly but answers, 'Of course.'
+
+Jacob: 'Medicine for memory problems, arthritis, jaundice?'
+
+Pharmacist: 'Yes, a large variety.'
+
+Jacob: 'What about vitamins, sleeping pills, Geritol, antidotes for Parkinson's?'
+
+Pharmacist: 'Absolutely!'
+
+Jacob: 'Do you sell wheelchairs and walkers?'
+
+Pharmacist: 'All speeds and sizes.'
+
+Jacob turns and confers with his wife to be and then says to the pharmacist,
+
+'We'd like to register here for our wedding gifts.'
 
