@@ -1,10 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Brain cells
+Friday the 13th
 
-What do you call a blonde with 2 brain cells?
+BOB- It's Friday the 13th.  Do you have any superstitions?
 
-
-
-Pregnant.
+GEORGE- I think it's unlucky to have superstitions.
 
