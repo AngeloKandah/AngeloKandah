@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Friday the 13th
+Dating
 
-BOB- It's Friday the 13th.  Do you have any superstitions?
+What is the best thing about dating a homeless woman?
 
-GEORGE- I think it's unlucky to have superstitions.
+You can drop her off anywhere.
 
