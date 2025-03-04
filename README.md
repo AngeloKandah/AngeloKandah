@@ -1,16 +1,25 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Warren Peace
+Why Did the Chicken Cross the Road?
 
-The social studies teacher had just completed a lesson on war and peace.
+Why did the chicken cross the road?
+To show the armadillo that it was possible.
 
-'How many of you,' the teacher asked, 'would say you're opposed to war?'
+Why did the chicken cross the road?
+To get away from Colonel Sanders!
 
-Not surprisingly, every student in the class raised their hand.
+Why did the chicken cross the road twice?
+Because it was a double-crosser.
 
-'Who would like to give us their reason for being opposed to war?' asked the teacher. Little Johnny, sitting at the back of the class, immediately raised his hand.
+Why did the Iraqi chicken cross the road?
+To take over the other side.
 
-'Johnny, what is your reason?' the teacher asked.
+Why did the chicken cross the playground?
+To get to the other slide.
 
-'I hate wars,' explained Johnny, 'because wars make history, and I hate History!'
+Why did the chicken cross the beach?
+To get to the other tide.
+
+Why did the dinosaur cross the road?
+Chickens hadn't evolved yet.
 
