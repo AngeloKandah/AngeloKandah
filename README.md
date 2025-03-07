@@ -1,20 +1,24 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Hidden
+Top 10 Funny Store Signs
 
-Little johnny was going to school.
-Incredibly he found a genie and was given 3 wishes.
-'Can I have a piece of candy?' he said.
-'Kid, I am a powerful genie ask for something else.'
+1.Outside a muffler shop: 'No appointment necessary, we hear you coming.'
+ 
+2.Outside a hotel: 'Help! We need inn-experienced people.' 
 
-'Mmmm, ok, give me 2 pieces of candy.'
-'You think I have time for such small wishes?  Don't ask for something so small.'
+3.On a desk in a reception room: 'We shoot every 3rd salesman, and the 2nd one just left.' 
 
-'I want candy.' 
+4.In a veterinarian's waiting room: 'Be back in 5 minutes, Sit! Stay!' 
 
-'Ok kid here you go; infinite candy.'
-'Cool, thank you.' 
+5.At the electric company: 'We would be de-lighted if you send in your bill. However, if you don't you will be.' 
 
-'Ok whats your second wish?  Kid, i don't have all day.' 
-'But I still have 3 wishes..'
+6.On the door of a computer store: 'Out for a quick byte.' 
+
+7.In a restaurant window: 'Don't stand there and be hungry, come on in and get fed up.' 
+
+8.Inside a bowling alley: 'Please be quiet, we need to hear a pin drop.' 
+
+9.In the front yard of a funeral home: 'Drive carefully, we'll wait.' 
+
+10.In a counselor's office: 'Growing old is mandatory, growing wise is optional.'
 
