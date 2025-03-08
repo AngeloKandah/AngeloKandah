@@ -1,24 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Top 10 Funny Store Signs
+Too Embarrassed
 
-1.Outside a muffler shop: 'No appointment necessary, we hear you coming.'
- 
-2.Outside a hotel: 'Help! We need inn-experienced people.' 
+Little David was in his 5th grade class when the teacher asked the children what their fathers did for a living.  All the typical answers came up -- firefighter, police officer, sales rep, doctor, lawyer, etc.  David was being uncharacteristically quiet, so the teacher  asked him about his father.
 
-3.On a desk in a reception room: 'We shoot every 3rd salesman, and the 2nd one just left.' 
+'My father's an exotic dancer in a gay cabaret, and takes off all his clothes in front of other men, and they put money in his underwear. Sometimes, if the offer's really good, he'll go home with some guy and make love with him for money.'
 
-4.In a veterinarian's waiting room: 'Be back in 5 minutes, Sit! Stay!' 
+The teacher, obviously shaken by this statement, hurriedly sent the other children to work on some exercises and took little David aside to ask him, 'Is that really true about your father?'
 
-5.At the electric company: 'We would be de-lighted if you send in your bill. However, if you don't you will be.' 
-
-6.On the door of a computer store: 'Out for a quick byte.' 
-
-7.In a restaurant window: 'Don't stand there and be hungry, come on in and get fed up.' 
-
-8.Inside a bowling alley: 'Please be quiet, we need to hear a pin drop.' 
-
-9.In the front yard of a funeral home: 'Drive carefully, we'll wait.' 
-
-10.In a counselor's office: 'Growing old is mandatory, growing wise is optional.'
+'No,' said David, 'He actually works for the 'RE-ELECT BUSH' Organization, but I was too embarrassed to say that in front of the other kids.'
 
