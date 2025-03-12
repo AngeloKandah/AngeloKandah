@@ -1,14 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Therapy Session
+Roulette
 
-A Licensed Counselor was conducting a group therapy session with four young mothers and their small children...
+The beautiful, vain blonde was visiting Las Vegas for the first time.  She approached the roulette wheel, but it looked very confusing.
 
-'You all have obsessions,' he observed. To the first mother, he said, 'You are obsessed with eating. You've even named your daughter Candy.'
+'How should I bet?' she asked the man standing beside her.
 
-He turned to the second Mom. 'Your obsession is with money. Again, it manifests itself in your child's name, Penny.'
+'Try betting your age,' he suggested.
 
-He turns to the third Mom. 'Your obsession is alcohol. This too manifests itself in your child's name, Brandy.'
-
-At this point, the fourth mother gets up, takes her little boy by the hand and whispers, 'Come on, Dick, we're leaving.'
+So the blonde put $500 on the number 32.  The ball landed on 36, and the blonde promptly fainted.
 
