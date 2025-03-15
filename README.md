@@ -1,6 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Whats that smell?
+A Dedicated Teamsters Union...
 
-Have you ever asked your child a question too many times? Johnny a three-year-old had a lot of problems with potty training and his mother was with him constantly. One day they stopped at Taco Bell for a quick lunch in between errands. It was very busy, with a full dining room. While enjoying her  taco, the mother smelled something funny, so of course she checked her seven-month-old daughter and she was clean. Then Mom realized that Johnny had not asked to go potty in a while, so she asked him if he needed to go, and he said 'No.' She kept thinking, 'Oh Lord, that child has had an accident, and I don't have any clothes with me.' Then she said, 'Johnny, are you SURE you didn't have an accident?' 'No,' he replied. she just KNEW that he must have had an accident, because the smell was getting worse. Soooooo! she asked one more time, 'Johnny, did you have an accident?' This time he jumped up, yanked down his pants, bent over and spread his cheeks and yelled. 'SEE MOM, IT'S JUST FARTS!!' While 30 people nearly choked to death on their tacos laughing, he calmly pulled up his pants and sat down.
+A dedicated Teamsters Union worker was attending a  convention in Las Vegas and, as you would expect, decided to check out the local brothels nearby. When he got to the first one, he asked the Madam, 'Is this a union house?' 'No,' she replied, 'I'm sorry, it isn't.'
+
+'Well, if I pay you $100.00, what cut do the girls get?'  'The house gets $80.00 and the girls get $20.00.'
+
+Mightily offended at such unfair dealings, the man stomped off down the street in search of a more equitable, hopefully unionized, shop. His search continued until finally he reached a brothel where the Madam responded, 'Why, yes sir, this IS a Union House.'  
+ 
+The man asked, 'And if I pay you $100.00, what cut do the girls get?'  'The girls get $80.00 and the house gets $20.'  That's more like it!' the UAW man said. He handed the Madam $100.00, looked around the room and pointed to a stunningly attractive blonde.  'I'd like her for the night.'   'I'm sure you would, sir,' said the Madam, then gesturing to an 85 year old woman in the corner, 'but Ethel here has seniority.'
 
