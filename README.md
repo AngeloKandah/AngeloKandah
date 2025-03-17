@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Two Men
+Funny Sign
 
-Man: How many asian people does it take to screw in a lightbulb?
+Ok. I honestly saw this on a billboard: 
 
-Asian Man: Whats a lightbulb?
+Illiterate? Call this number to learn how to read.
 
