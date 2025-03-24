@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Sherlock Holmes in Heaven
+What's the Difference?
 
-Sherlock Holmes stood at the Gates of Heaven pulling at his pipe awaiting his turn. 'I'll let you in,' said St. Peter, gesturing toward the heavenly throngs behind him, 'if you'll tell me who among these was the first mortal.'
+What's the difference between a golf ball and a woman's G-spot?
 
-'Elementary, my dear St. Peter,' said the great detective, 'he's the one without a bellybutton.'
+A man will spend 20 minutes looking for a golf ball!
 
