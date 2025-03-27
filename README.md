@@ -1,17 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Vote For ME!
+Drunk Man Home
 
-What happens when a president gets elected in a year with a '0' at the end?
+A man is in a bar and falling off his stool every couple of minutes. He is obviously drunk. So the bartender says to another man in the bar: 'Why don't you be a good samaritan and take him home.' 
 
-1840: William Henry Harrison (Died in Office)
-1860: Abraham Lincoln (Assassinated)
-1880: James A. Garfield (Assassinated)
-1900: William McKinley (Assassinated)
-1920: Warren G. Harding (Died in Office)
-1940: Franklin D. Roosevelt (Died in Office)
-1960: John F. Kennedy (Assassinated)
-1980: Ronald Reagan (Survived assassination attempt)
+The man takes the drunk out the door, and to his car, and he stumbles at least ten times. They drive along and the drunk points out his house to the man. He stops the car, and the drunk stumbles up the steps to his house with the man. 
 
-And to think that we had two guys duking it out in the courts to be the one elected in 2000!
+The drunk's wife greets them at the door: 'Why thank you for bringing him home for me, but where's his wheel chair?'
 
