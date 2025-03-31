@@ -1,6 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Cruelest Redneck Joke Ever
+You Couldn't Make It Up II
 
-You know you are a redneck when you do not speak your first word until your 18th birthday and that word is WELFARE!.
+British Columbia, Canada: Police officers on patrol about 1:00 am spotted 4 men breaking into a vehicle. They gave chase on foot, catching and arresting two of the men. The other two escaped.
+
+A couple of hours later, two men showed up at the main desk of the police station, asking when their buddies were going to be released. They were carrying (and wearing) items which had been stolen from the car.
 
