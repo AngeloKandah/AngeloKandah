@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Stop!
+Fire Under Water
 
-An RCMP officer pulled over a vehicle that had performed a rolling stop at a stop sign.
+What's worse than a brunette building a fire under water?
 
-When the driver was told this, he replied, 'But it says STOP, not STAY!'
+A blonde trying to put it out.
 
