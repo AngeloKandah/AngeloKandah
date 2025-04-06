@@ -1,8 +1,13 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Haunted Hotel Room
+Staring Out The Window
 
-A man walked into a hotel and asked for a room. The guy behind the counter said there is only one room left but it is haunted. The man does not believe this so he gets the room. That night the man hears a voice saying 'I`m gonna find you, I`m gonna get you, I`m gonna eat you!' The man runs away scared.
-The next day a father and his daughter get the room after they were warned. That night they hear 'I`m gonna find you, I`m gonna get you, I`m gonna eat you!' The girl hides under the bed as the father follows the sound to the closet. He opens the door.
-There on the floor sits a little boy, picking his nose, saying 'I`m gonna find you, I`m gonna get you, I`m gonna eat you!'
+A  mother took her daughter to the doctor and asked him to give her an examination to determine the cause of her daughter's swollen abdomen.
+It only took the doctor about 2 seconds to say 'Gimmee a break lady! Your daughter is pregnant.' 
+The mother turned red with fury and she argued with the doctor that her daughter was a good girl and would never compromise her reputation by having sex with a boy.
+The doctor faced the window and silently watched the horizon. The mother became enraged an screamed,
+
+'Quit looking out the window! Aren't you paying attention to me?' 
+
+'Yes, of course I am paying attention ma'am. It's just that the last time this happened, a star appeared in the east, and three wise men came. I was hoping they would show up again and help me figure out who got your daughter pregnant.'
 
