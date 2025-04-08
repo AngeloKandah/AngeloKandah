@@ -1,8 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Where Are You?
+New Line Of...
 
-What's a bigamist? 
-
-A heavy fog in Naples!
+The Lazy Bowl Reclining toilet: It's plush while you flush!
 
