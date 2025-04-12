@@ -1,22 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Elephant Jokes (Plus One Mouse Joke)
+Nightmare Mice
 
-What's gray and comes in packets?
-Instant elephant.
+Mrs. Biddle was walking down the street one day carrying a small box with holes punched in the top.
 
-What's gray and comes in buckets?
-An elephant.
+'What's in that box?' Mrs. Riddle asked.
+'A cat,' Mrs. Biddle answered.
+'What for?'
+'I've been dreaming about mice at night, and I'm scared of mice. The cat is to catch them.'
+'But the mice you dream about are imaginary,' said Mrs. Riddle.
 
-What's gray and has a trunk?
-A mouse going on holiday.
-
-How do elephants hide in cherry trees?
-They paint their toe-nails red.
-
-How do elephants get down from cherry trees?
-Sit on a leaf and wait for fall.
-
-How do elephants hide in custard?
-Paint the soles of their feet yellow and hide upside down.
+Mrs. Biddle turned to her friend and whispered, 'So is the cat.'
 
