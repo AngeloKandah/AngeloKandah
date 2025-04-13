@@ -1,14 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Nightmare Mice
+Big Fat Penis
 
-Mrs. Biddle was walking down the street one day carrying a small box with holes punched in the top.
-
-'What's in that box?' Mrs. Riddle asked.
-'A cat,' Mrs. Biddle answered.
-'What for?'
-'I've been dreaming about mice at night, and I'm scared of mice. The cat is to catch them.'
-'But the mice you dream about are imaginary,' said Mrs. Riddle.
-
-Mrs. Biddle turned to her friend and whispered, 'So is the cat.'
+You perverts..
 
