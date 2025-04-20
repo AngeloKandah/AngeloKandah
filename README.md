@@ -1,6 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Behind Back
+Not Joking
 
-You're so fat that everybody has to talk behind your back!
+Knock-knock
+Who's there
+It's me.  This is not a joke.
+It's me.  This is not a joke. who?
+Grrrrrrrrrr...
 
