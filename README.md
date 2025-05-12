@@ -1,8 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Disobedience
+Accountant Prayer
 
-What do you get when you aim a nuclear weapon at a disobedient country?
-
-South Korean Barbecue.
+The accountant's prayer: 
+'Lord, help me be more relaxed about insignificant details, starting tomorrow at 10.53:16 am, Eastern Daylight Saving Time.'
 
