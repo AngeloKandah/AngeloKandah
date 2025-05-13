@@ -1,7 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Accountant Prayer
+The Cat and the Rooster
 
-The accountant's prayer: 
-'Lord, help me be more relaxed about insignificant details, starting tomorrow at 10.53:16 am, Eastern Daylight Saving Time.'
+The cat was chasing the rooster around on the farm, then the cat fell in the water and the rooster laughed. Lesson: For every wet pussy there is a happy cock
 
