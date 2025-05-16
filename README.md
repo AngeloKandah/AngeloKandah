@@ -1,48 +1,42 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Adds Shoud Bee Proof-Read...
+No Homework Pass
 
-For sale: a quilted high chair that can be made into a table, potty chair, rocking horse, refrigerator, spring coat, size 8 and fur collar.
+Little Johnny Clever was in Mrs. Gleason's 3rd grade class for just a couple of weeks when he ran home to his mom and showed her a little 3x3 piece of paper.  It had the word 'Homework' crossed out in a circle with a slash (the very same you see with no smoking signs)
+'What is this?' The mother said inquiringly.
 
-Dinner Special -- Turkey $2.35; Chicken or Beef $2.25; Children $2.00.
+'Its a no homework pass mommy! I raised my hand the most in class.  All you have to do is sign it and I dont have to do any homework for tonight!' says Johnny excitedly!
 
-Dog for sale: eats anything and is fond of children.
+'Well thats a good thing to keep kids interested in the subject and class participation. I bet this teacher's been teaching for quite a while!' thought his mother as she signed the slip for him.
 
-We do not tear your clothing with machinery. We do it carefully by hand.
+     So the next day Johnny comes home again just as excited.  He won another no homework pass.  His mother was starting to be very proud.  This happened every day for the whole nine weeks.
+     On report card day, Johnny came home with a D and she started to wonder if maybe he shouldnt be given so many no homework passes but when she asked him about it, he said that the tests were just very hard. 
 
-For Rent: 6-room hated apartment.
+'Well that's allright Johnny, mommy didnt do very well on tests when she was a little girl either. But thats why you have to do your homework to keep up the test grades from making you to fail.'
 
-Auto Repair Service. Free pick-up and delivery. Try us once, and you'll never go anywhere again.
+      The same thing happened all next nine weeks with the no homework pass, and Johnny's mom was sure that her little boy was going to get an A next report card.  She started bragging to all her co-workers just how well little Johnny was doing.  Johnny's dad was hearing the good work that his son was doing and was boasting to all of his co-workers as well.  At the end of the nine-weeks, they both decided to have a party and let everyone see the big improvement their son was having from bringing that C up to an A.
+      On the big report card day, Mom and Dad were laughing and having a good time when Little Johnny came in the front door and saw all the guests his mom and dad had.  Taken aback by this, he asked his mom what was going on.
 
-Illiterate? Write today for free help.
+'This is for you honey! for doing so well in school! Show everyone your report card!'
 
-Great Dames for sale.
+'Um mom... my teacher wants you to call her first before you open the report card?'
 
-Mt. Kilimanjaro, the breathtaking backdrop for the Serena Lodge. Swim in the lovely pool while you drink it all in.
+'Oh?' she said? 'She must want to tell me what a great job Little Johnny's been doing!' she thought... so called the teacher and put her on loud speaker for everyone to hear.
 
-Get rid of aunts: Zap does the job in 24 hours.
+'Ahem, Mrs. Gleason? Hi! This is Mrs. Clever! Little Johnny's mom! Im so happy you wanted to speak to me about my little boy!' exclaimed Johnny's mom.
 
-Stock up and save. Limit: one.
+'Mrs. Clever? I'm not too sure what you're talking about... Did you see the report card?'
 
-Save regularly in our bank. You'll never reget it.
+    Thinking this was the big moment, and she opened up the card to see the big F that Johnny came home with.  Obviously getting upset at the teacher because she knew immediately what happened... she spoke back very flustered.
 
-For Sale--Diamonds $20; microscopes $15.
+'Mrs. Gleason! I am appalled! If johnny wasnt doing so well, why did you keep giving him the no homework passes that I was signing??'
 
-Used Cars: Why go elsewhere to be cheated? Come here first!
+'N-n-no homework PASSES?' a chuckling Mrs. Gleason started... 'no no no... They're no homework SLIPS, when the children dont do their homework! they have to get them signed and bring them back!'
 
-Wanted. Man to take care of cow that does not smoke or drink.
+'....oh really...' Mrs Clever started to eye little Johnny as he started backing away...
 
-3-year-old teacher needed for pre-school. Experience preferred.
+'You mean to tell me that he's been telling you they're no homework passes?'
 
-Our experienced Mom will care for your child. Fenced yard, meals, and smacks included.
-
-Wanted: Preparer of food. Must be dependable, like the food business, and be willing to get hands dirty.
-
-Mother's helper--peasant working conditions.
-
-Semi-Annual after-Christmas Sale.
-
-And now, the Superstore--unequaled in size, unmatched in variety, unrivaled inconvenience.
-
-We will oil your sewing machine and adjust tension in your home for $1.00.
+..... So the next day, Johnny couldnt sit down very well.
+..... and the next day after that, Johnny had his homework.
 
