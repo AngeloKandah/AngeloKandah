@@ -1,14 +1,27 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-What are Editors and How Do I Become One?
+Dirty Old Man
 
-An editor is someone who has earned enough points to 'unlock' certain features of the website. Editors have certain degrees of ability to modify the jokes on this website. Here is a list of the requirements and privileges given to those who meet the requirements. You do not need to ask to become an editor. If you meet the requirements you automatically have those privileges.(Note: You may not get those privileges if you exhibit bad behavior toward the website.)
+An old man was on the beach and walked up to a beautiful girl in a bikini -
+'I want to feel your breasts' he exclaimed.
+'Get away from me, you crazy old man' she replied.
 
-Level 0: (100 Points) You can report and verify duplicate jokes.
+'I want to feel your breasts, I will give you twenty dollars,' he says.
+'Twenty dollars, are you nuts!? Get away from me!'
 
-Level 1: (500 Points) You can suggest and verify corrections to jokes in order to improve spelling, grammar and other errors.
+'I want to feel your breasts, I will give you ONE HUNDRED DOLLARS' he stated.
+'NO! Get away from me!'
+'TWO HUNDRED DOLLARS' he offered.
+She paused to think about it, but then comes to her senses and said, 'I said NO!'
 
-Level 2: (1000 Points) Your votes on jokes count as double (but you still only get 1 point for a vote)
+'FIVE HUNDRED DOLLARS if you let me feel your breasts,' he claimed.
+She thought, well he is old, and he seems harmless enough...and $500 IS a lot of money....
+'Well, OK...but only for a minute.'
 
-Level 3: (4000 Points) Your votes on jokes count as triple (but you still only get 1 point for a vote)
+She loosened her bikini top and while both are standing there on the beach, he slid his hands underneath and began to feel... then he started saying, 'OH MY GOD...OH MY GOD...OH MY GOD...' while he was caressing them.
+
+Out of curiosity, she asked him, 'Why do you keep saying, 'Oh my god, oh my god'?'
+
+While continuing to feel her breasts he answered, 'OH MY GOD...OH MY GOD...OH MY GOD...
+OH MY GOD, where am I ever going to get five hundred dollars?
 
