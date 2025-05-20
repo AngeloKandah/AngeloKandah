@@ -1,14 +1,9 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Hello, Dear
+Nuns
 
-A woman phones up her husband at work for a chat.
-
-HIM 'I'm sorry dear but I'm up to my neck in work today.'
-
-HER 'But I've got some good news and some bad news for you dear.'
-
-HIM 'OK, darling, but as I've got no time now, just give me the good news.'
-
-HER 'Well, the air bag works.'
+Several elderly nuns were in their second floor convent one night when a fire broke out. 
+They took their habits off, tied them together to make a rope, and climbed out the window. 
+After they were safely on the ground and out of the building, a news reporter came over to one of the nuns and said to her, 'Weren't you afraid that the habits could have ripped or broken since they are old?'
+The nun replied, 'Nah, don't you know old habits are hard to break?'
 
