@@ -1,9 +1,20 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Nuns
+Inflatable Doll
 
-Several elderly nuns were in their second floor convent one night when a fire broke out. 
-They took their habits off, tied them together to make a rope, and climbed out the window. 
-After they were safely on the ground and out of the building, a news reporter came over to one of the nuns and said to her, 'Weren't you afraid that the habits could have ripped or broken since they are old?'
-The nun replied, 'Nah, don't you know old habits are hard to break?'
+A guy goes in an adult book store and asks for an inflatable doll.
+
+Guy behind the counter says, 'Male or female?'
+
+Customer says, 'Female.'
+
+Counter guy asks, 'Black or white?'
+
+Customer says, 'White.'
+
+Counter guy asks, 'Radical Christian or Muslim Extremist?'
+
+Customer says, 'What the hell does religion have to do with it?'
+
+Counter guy says, 'The Muslim Extremist blows itself up.'
 
