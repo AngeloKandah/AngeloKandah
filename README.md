@@ -1,16 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Doctor Golf
+Where Do They Go?
 
-Over a round of golf, two doctors were talking shop. 
+Q.  Where do Comedians go if they are sick?
 
-'I operated on Mr. Lee the other day,' said the surgeon. 
-
-'What for?' asked his colleague. 
-
-'About $17,000.' 
-
-'What did he have?' 
-
-'Oh... About $17,000.'
+A.  To the He-He-Mergency room!
 
