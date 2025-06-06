@@ -1,10 +1,16 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Scaredy-Cat
+Royal Flush
 
-Two kids are arguing over whose father is the biggest scaredy-cat.
+Queen Elizabeth and Dolly Parton die on the same day, and they both go before the angel to find out if they'll be admitted to heaven.
 
-The first kid said, 'My dad is so scared that, when lightning strikes, he hides underneath the bed.'
+Unfortunately, there's only one space left that day, so the angel must decide which of them gets in.
 
-'Oh, yeah? That's nothing,' said the second kid. 'My dad is so scared that, when my mom has to work the night shift, he goes next door to sleep with Mrs. Jones!'
+The angel asks Dolly if there's some particular reason why she should go to heaven, whereupon she takes off her top and says, 'Look at these. They're the most perfect breasts God ever created, and I'm sure it will please God to be able to see them every day, for eternity.'
+
+The angel thanks Dolly, and asks Her Majesty the same question. The Queen drops her skirt and panties, takes a bottle of Perrier out of her purse, shakes it up, and douches with it. The angel says, 'OK, your Majesty, you may go in.'
+
+Dolly is outraged...'What was that all about? I show you two of God's own perfect creations and you turn me down. She performs a rude act of hygiene and she gets in. Would you explain that to me?'
+
+'Sorry, Dolly,' says the angel, 'but even in heaven, a royal flush beats a pair, no matter how big they are.'
 
