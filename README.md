@@ -1,16 +1,26 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Royal Flush
+Wife Goes on a Trip.........
 
-Queen Elizabeth and Dolly Parton die on the same day, and they both go before the angel to find out if they'll be admitted to heaven.
+A woman goes to Italy to attend a two week, company training session. Her husband drives her to the airport and wishes her a good trip.
 
-Unfortunately, there's only one space left that day, so the angel must decide which of them gets in.
+The wife answers, 'Thank you hon, what would like me to bring for you?'
 
-The angel asks Dolly if there's some particular reason why she should go to heaven, whereupon she takes off her top and says, 'Look at these. They're the most perfect breasts God ever created, and I'm sure it will please God to be able to see them every day, for eternity.'
+The husband laughs and says, 'An Italian girl.'
 
-The angel thanks Dolly, and asks Her Majesty the same question. The Queen drops her skirt and panties, takes a bottle of Perrier out of her purse, shakes it up, and douches with it. The angel says, 'OK, your Majesty, you may go in.'
+The woman kept quiet and left.
 
-Dolly is outraged...'What was that all about? I show you two of God's own perfect creations and you turn me down. She performs a rude act of hygiene and she gets in. Would you explain that to me?'
+Two weeks later he picks her up at the airport and asks, 'So, hon, how was the trip?'
 
-'Sorry, Dolly,' says the angel, 'but even in heaven, a royal flush beats a pair, no matter how big they are.'
+'Very good, thank you.'
+
+'And what happened to my present?'
+
+'What present?' she asked
+
+'The one I asked for - an Italian girl!'
+
+'Oh, that,' she said.
+
+'Well, I did what I could, now we'll have to wait for nine months to see if it's a girl!'
 
