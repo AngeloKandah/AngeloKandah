@@ -1,6 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Gap
+Blisters on Her Lips
 
-The gap between your teeth is so big, I don't know whether to smile back or kick a field goal.
+Why did the blond have blisters on her lips?
+From trying to blow out lightbulbs!
 
