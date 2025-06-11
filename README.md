@@ -1,59 +1,47 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Frog and Golf
+The Joys of E-mail
 
-A man takes a day off work and decides to go out golfing. He is on the second hole, when he notices a frog sitting next to the green. He thinks nothing of it, and is about to shoot when he hears
+I want to thank all of you who have taken the time and trouble to send me your damn chain letters over the past few years. Yes, thank you, thank you, thank you from the bottom of what's left of my heart for making me feel safe, secure, blessed, and wealthy. 
+Because of your concern...I no longer can drink Coca Cola because it can remove toilet stains. 
 
- 'Ribbit, 9 iron'
+I no longer drink anything out of a can because I will get sick from the rat feces and urine. 
 
- The man looks around and doesn't see anybody. So he gets ready again, when he hears 
+I no longer use Saran wrap in the microwave because it causes cancer. 
 
-'Ribbit 9 iron'
+I no longer check the coin return on pay phones because I could be pricked with a needle infected with AIDS. 
 
- He looks at the frog, and decides to prove him wrong. He puts away his club, and gets a 9 iron. 
+I no longer use cancer-causing deodorants even though I smell like a water buffalo on a hot day 
 
-He whacked that ball, and it landed 10 in. from the cup! He was shocked, and looked at the frog, 'Wow, that was amazing' he said 'You must be a lucky frog then.'
+I no longer use margarine because it's one molecule away from being plastic. 
 
-'Ribbit, Lucky Frog'
+I no longer go to shopping malls because someone will drug me with a perfume sample and rob me. 
 
-The man takes the frog to the next hole. 'What do you think?' he said. 
+I no longer receive packages from UPS or FedEx since they are actually Al Qaeda in disguise. 
 
-'Ribbit, 3 wood'
+I no longer answer the phone because someone will ask me to dial a stupid number for which I will get the phone bill from hell with calls to Jamaica, Uganda, Singapore, and Zebekistan. 
 
-The man takes out his 3 wood, and hit the ball. Hole in 1! He was befuddled, and didn't know what to say. 
+I no longer eat KFC because their chickens are actually horrible mutant freaks with no eyes or feathers. 
 
-He took the frog to every hole, and he golfed his best game.
+I no longer date the opposite sex because they will take my kidneys and leave me taking a nap in a bathtub full of ice. 
 
-'OK,' said the man 'Where to next?'
+I no longer buy expensive cookies from Neiman Marcus since I now have their recipe. 
 
-'Ribbet, Las Vegas'
+I no longer worry about my soul because I have 363,214 angels looking out for me and St. Theresa's novena has granted my every wish. 
 
-So off they went, to Las Vegas. When they arive, he asks, 'Now what?' 
+Thanks to you, I have learned that God only answers my prayers if I forward an email to seven of my friends and make a wish within five minutes. (Geez, the BIBLE did not mention it works that way!) 
 
-'Ribbit, Roulette Wheel'
+I no longer have any savings because I gave it to a sick girl who is about to die in the hospital (for the 1,387,258th time). 
 
-'What should I bet?'
+I no longer have any money at all, but that will change once I receive the $15,000 that Microsoft and AOL are sending me for participating in their special e-mail program. 
 
-'Ribbit, $3000, black 6'
+Yes, I want to thank all of you soooooooo much for looking out for me! 
 
-After the luck at golfing, the man says, 'What the hell.' 
+I will now return the favor. 
 
-Then, suddenly loads of  cash came sliding across the table; he got it.
+If you don't send this e-mail to at least 1200 people in the next 60 seconds, a large bird with diarrhea will crap on your head at 5:00 PM this afternoon and the fleas of a thousand camels will infest your armpits. 
 
-He takes his winnings and buys the best hotel room, and he, of course, brings the frog.
+I know this will occur because it actually happened to a friend of a friend of a friend of a friend of a friend of a friend of a friend of my next door neighbor's ex-mother-in-law's 8th husband's 2nd cousin's 3rd husband's ex-wife's mother's beautician! 
 
-'Frog, you have won me all this money, and I do not know how to repay you.'
-
-'Ribbit, Kiss Me'
-
-'Well, I guess...'
-
-
-
-POOF........
-
-The frog becomes a 10 year old boy. 'And that, your honor, is how the boy got into my room. So help me God, if my name is not....
-
-
-Michael Jackson'
+Ain't spam great?!?!?
 
