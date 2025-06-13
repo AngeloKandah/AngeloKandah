@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Do an Essay
+I Hear Me Talking
 
-Yo momma is so dumb I told her to do an essay and she went and fucked a mexican...
+If people listened to themselves more often, they would talk less.
 
