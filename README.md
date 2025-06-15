@@ -1,10 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-School Teacher
+Toilet Seat
 
-The tourist had lost his way on a back road and stopped at the farmhouse to ask if he could be put up for the night. 'Well, we're a mighty crowded, since there's already someone in the spare room' replied the farmer. 'But I guess you can stay if you don't mind sharing the bed with a red haired schoolteacher.'
+A man decides to take the opportunity while his wife is away to paint the wooden toilet seat. 
 
-'Look,' said the tourist, 'I want you to know I'm a gentleman.'
+The wife comes home sooner than expected, sits, and gets the seat stuck to her rear. She is understandably distraught about this and asks her husband to drive her to the doctor. 
 
-'Well,' mused the farmer, 'as far as I can tell, so is the red haired schoolteacher.'
+She puts on a large overcoat so as to cover the stuck seat, and they go. 
+
+When they get to the doctor's, the man lifts his wife's coat to show their predicament. The man asks, 'Doctor, have you ever seen anything like this before?' 
+
+'Well, yes,' the doctor replies, 'but never framed.'
 
