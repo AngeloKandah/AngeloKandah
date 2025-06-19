@@ -1,8 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Cats On The Phone
+Should Never
 
-What did the cat say to the other cat on the phone?
+Fill in the blank:
 
-Can you hear me-ow?
+The one who says it cannot be done should never _________ the one who is doing it. 
+
+Interrupt.
 
