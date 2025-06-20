@@ -1,10 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Should Never
+The Law of Drunkenness
 
-Fill in the blank:
-
-The one who says it cannot be done should never _________ the one who is doing it. 
-
-Interrupt.
+The law of drunkenness- You can't fall off the floor.
 
