@@ -1,23 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-5 Jokes (9)
+The Job
 
-1 What do you call a blonde with ESP and PMS?
+A blonde was recently fired from her cashier job, because she kept stealing money from the register.  She went looking for work the next day.  
 
-A know-it-all bitch.
+A few days later, she came to a man who needed someone.  'I'm here for the paint job', the blonde said eagerly.  'Alright.  Take this paint and brush, and go paint my backyard porch', replied the man.  
 
-2 I told my blonde girlfriend that I was going skeet shooting.
+The blonde immediately started painting.  After she was done, she decided to do a second coat.  When she was finished, she went to the man to get her pay.  
 
-She told me she didn't know how to cook them.
-
-3  Did you hear about the blonde who
-was M.D.  (mentallY deficient)
-
-4 Why is it okay for blondes to catch cold?
-
-They don't have to worry about blowing their brains out.
-
-5 What's five miles long and has an IQ of forty?
-
-A blonde parade.
+'I finished it, and did a second coating too!  By the way, that's not a Porsche, it's a new BMW'.
 
