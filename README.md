@@ -1,12 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Job
+Anagrams
 
-A blonde was recently fired from her cashier job, because she kept stealing money from the register.  She went looking for work the next day.  
+Can you complete this sentence using two words which are anagrams of each other? 
 
-A few days later, she came to a man who needed someone.  'I'm here for the paint job', the blonde said eagerly.  'Alright.  Take this paint and brush, and go paint my backyard porch', replied the man.  
+Whilst driving his car at a reckless speed, the driver was distracted by his dog _______. Luckily, he managed to complete the _______ manoeuvre without crashing.
 
-The blonde immediately started painting.  After she was done, she decided to do a second coat.  When she was finished, she went to the man to get her pay.  
-
-'I finished it, and did a second coating too!  By the way, that's not a Porsche, it's a new BMW'.
+Whilst driving his car at a reckless speed, the driver was distracted by his dog barking. Luckily, he managed to complete the braking manoeuvre without crashing.
 
