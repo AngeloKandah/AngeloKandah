@@ -1,12 +1,16 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-These Three Guys
+Winning The Nobel Prize!
 
-There were three guys, a Torontonian, an American and a Newfie. They were all going to be executed. The executioner said that since all three were to be executed that night, they would each get to choose the method by which they would die.
+A man is driving down a country road, when he spots a male farmer standing in the middle of a huge field of grass. Of course the farmer is a blond. :)
 
-Their choices were: lethal injection, electric chair or by hanging. The American was afraid of needles and didn't want to be hanged, so he chose the electric chair. He sat in the chair and they pulled the switch and nothing happened. The executioner said that if this happens a second time that he could go free. They tried a second time and again nothing happened, so they set him free.
+He pulls the car over to the  side of the road and notices that the farmer is just standing there, doing nothing, looking at nothing.
 
-The guy from Toronto was also afraid of needles and didn't want to be hanged so he too chose the electric chair. Once again, the chair didn't work and he was free.
+The man gets out of the car, walks all the way out to the farmer and asks him, 'Er... excuse me mister, but what are you doing?'
 
-Next it was the Newfie's turn to pick how he was to be executed. He said, 'I'm afraid of needles, the electric chair won't work so you're going to have to hang me.'
+The farmer replies, 'I'm trying to win a Nobel Prize.'
+
+'How?' asks the man, puzzled.
+
+'Well, I heard they give the Nobel Prize to people who are out standing in their field!'
 
