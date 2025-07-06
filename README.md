@@ -1,11 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Bet You Will Find Just One!
+Press on Nails
 
-The other day, I bought a packet of air. I was surprised to find a few potato chips inside it.
+Most of us have a bad habit we are constantly trying to break. For me, it's biting my fingernails. One day I told my husband about my latest solution: press-on nails. 
 
-
-
-
--Dedicated to Lays
+'Great idea, honey,' he smiled. 'You can eat them straight out of the box.'
 
