@@ -1,6 +1,24 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-What You Thought
+Batty Books 2!
 
-Men can live without air for a few minutes, without water for a few days, without food for about two months, and without new thoughts for years on end.
+Crime and Punishment by Laura Norda
+
+The Use of Natural Fertilizers; by G.G. Dunnit
+
+The Way to Quick Riches; by Robbin Banks
+
+Holidays in Britain; by A. Pauline Whetha
+
+Contagious Diseases; by Willie Catchit
+
+Driving Through Germany; by Otto Mobile
+
+Broken Window; by Eva Brick
+
+Monsters; by Frank N. Stein
+
+Cliff Tragedy; by Eileen Dover
+
+Even More to come, i promise!!!!
 
