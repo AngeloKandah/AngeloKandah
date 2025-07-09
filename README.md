@@ -1,24 +1,13 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Batty Books 2!
+Old McDonald.....
 
-Crime and Punishment by Laura Norda
-
-The Use of Natural Fertilizers; by G.G. Dunnit
-
-The Way to Quick Riches; by Robbin Banks
-
-Holidays in Britain; by A. Pauline Whetha
-
-Contagious Diseases; by Willie Catchit
-
-Driving Through Germany; by Otto Mobile
-
-Broken Window; by Eva Brick
-
-Monsters; by Frank N. Stein
-
-Cliff Tragedy; by Eileen Dover
-
-Even More to come, i promise!!!!
+An American. an Englishman and a Chinese man were all taking part in a quiz contest. One question asked them was to fill in a blank in a song title and then spell the word. The song title was 'Old Macdonald had a ----'.
+The American was first to answer - he said 'ranch', spelt R-A-N-C-H.
+'Wrong' said the quiz master.
+The Englishman answered next - he said 'estate', spelt E-S-T-A-T-E.
+'Wrong' said the quiz master.
+Then the Chinese man answered - he said 'farm'.
+'Please spell it' said the quiz master.
+'E - I - E - I - O'
 
