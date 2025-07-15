@@ -1,14 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-July
+Into the Bar
 
-Knock Knock
-
-Who's there?
-
-July
-
-July who?
-
-July like Bill Clinton
+There's this dyslexic guy... he walked into a bra...
 
