@@ -1,6 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Into the Bar
+Alaska
 
-There's this dyslexic guy... he walked into a bra...
+Knock-Knock
+Who's there?
+Alaska
+Alaska who?
+Alaska one more time, open the door
 
