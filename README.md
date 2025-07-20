@@ -1,7 +1,11 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Ouch!
+Don't Eat the Brown Ones
 
-A bank robber in Virginia Beach got a nasty surprise when a dye pack designed to mark stolen money exploded in his Fruit-of-the-Looms. The robber apparently stuffed the loot down the front of his pants as he was running out the door. 'He was seen hopping and jumping around,' said police spokesman Mike Carey, 'with an explosion taking place inside his pants.' 
-Police have the man's charred trousers in custody...
+A guy took his girlfriend to the movies. During the pre-views, she asked him if he would go and buy her some M JOKE Ms. 
+When he returned with her candy, she opened the bag, picked out all the brown ones and threw them away. 
+
+'What did you do that for?' he asked her. 
+
+'I'm allergic to chocolate!' she replied.
 
