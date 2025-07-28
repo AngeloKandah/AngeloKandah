@@ -1,39 +1,26 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Clinton V Titanic
+Interviewing Tips Not to Use!
 
-Titanic Video vs Clinton Video 
+Using the following list will most certainly keep your afternoons free and enable you to watch those cool Oprah and Sally shows. 
 
-TITANIC VIDEO: $9.99 on Internet. 
-CLINTON VIDEO: $9.99 on Internet. 
+When filling out the job application form, under the heading 'Sex',  instead of writing male or female, write in, 'Not nearly enough, but I'm trying!' 
 
-TITANIC VIDEO: Over 3 hours long. 
-CLINTON VIDEO: Over 3 hours long. 
+In the same form under the heading 'Have you ever been convicted of a crime?' answer, 'Not yet.' 
 
-TITANIC VIDEO: The story of Jack and Rose, their forbidden love, a subsequent catastrophe. 
-CLINTON VIDEO: The story of Bill and Monica, their forbidden love, a subsequent catastrophe. 
+Show up late for the interview and try to rationalize it by saying, 'My mom forgot to wake me again.'  This is in especially bad taste if you happen to be in your forties or older. 
 
-TITANIC VIDEO: Villain: White Star Line. 
-CLINTON VIDEO: Villain: Ken Starr. 
+When meeting the interviewer for the first time, shake his hand and say: 'You look familiar.  I'm sure I've seen you before somewhere. Weren't you in the cell next to mine at Sing Sing?' 
 
-TITANIC VIDEO: Jack is a starving artist. 
-CLINTON VIDEO: Bill is a B.S. artist. 
+Tell the employer you will need a salary of at least $40k because the price of cocaine has gone up. 
 
-TITANIC VIDEO: In one part, Jack enjoys a good cigar. 
-CLINTON VIDEO: Ditto for Bill. 
+When asked why you left your last job, say: 'Ah, well, my employer died under mysterious circumstances and like I told the police when they brought me in for questioning, I was home alone sleeping at the time.' 
 
-TITANIC VIDEO: During ordeal, Rose's dress gets ruined. 
-CLINTON VIDEO: Ditto for Monica. 
+Ask the employer how close your office will be to the bathroom, explaining how you picked up a highly contagious worm while traveling abroad and now you just can't seem to get rid of it. 
 
-TITANIC VIDEO: Jack teaches Rose to spit. 
-CLINTON VIDEO: Let's not go there. 
+Ask the employer what his thoughts are on recreational pot smoking in the employee's lounge. 
 
-TITANIC VIDEO: Rose gets to keep her jewelry. 
-CLINTON VIDEO: Monica's forced to return her gifts. 
+Tell the employer you won't be able to start for five to ten years because you are going on a little vacation. 
 
-TITANIC VIDEO: Behind the scenes: Leonardo DiCaprio is wildly popular. 
-CLINTON VIDEO: Behind the scenes: Bill Clinton's approval rating is at 70 percent. 
-
-TITANIC VIDEO: Jack surrenders to an icy death. 
-CLINTON VIDEO: Bill goes home to Hillary.
+After the interview, call the employer at home at 3 a.m. and ask if he/she has made a decision yet on whom to hire.
 
