@@ -1,35 +1,39 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Collection of 'You Know You're a Redneck When...' Number 2
+Fun Things To Do In A Waiting Room
 
-Managed to remember some MORE Redneck lines while hearing a couple more.
+Fun things to do in a Waiting Room-
+----------------------------------------------------
 
-You know you're a redneck when:
+1.) Stand in a doorway and press your arms against the frame.
 
-You lost your virginity at the age of 11.
+2.) Take a pencil or pen and make little airplane noises and if anyone notices, stare at them and say, 'We've been spotted!' and run around in circles.
 
-You need an estimate from your barber before you get a haircut.
+3.) Try to get behind the receptionist's counter and when some one comes, pop up, and yell 'surprise!' at anyone under 50. (heart attack risk)
 
-Taking a dip has nothing to do with water.
+4.) Make paper airplanes out of magazine pages. Fly them around the room.
 
-There are more than ten lawsuits currently pending against your dog.
+5.) Stare at someone in the room and yell, 'It's an agent!' and run out.
 
-You take a fishing pole to Sea World.
+6.) Come in dressed as a bum and ask if they have any fried beans.
 
-The hood and one door are a different color from the rest of your car.
+7.) Repeat the following conversation ten times to the same random person in the room:
+ 
+You: 'Do you hear that?'
+Person: 'What?'
+You: 'Never mind, it's gone now.'
 
-Your TV is a bag of manure on fire.
+8.) Come in dressed in army fatigues.
 
-Your 'family reunion' was at the NRA convention.
+9.) Leave your zipper open and if anyone asks say: 'Sorry, I really prefer it this way.'
 
-Santa Claus refuses to let your kids sit in his lap.
+10.) Babble incoherently at the receptionist and ask, 'Did you get all that? I don't want to repeat it.'
 
-You've shot somebody over a mall parking space.
+11.) Tuck one pant leg into your sock and if asked, reply 'Not now' and walk away.
 
-Your toilet paper has page numbers on it.
+12.) Take your shoes off and ask some one 'You wanna trade?'
 
-Making a chocolate cake has nothing to do with chocolate.
+13.) Stare blankly at some one and if they start to look uncomfortable, say 'I'm onto you...' and squint.
 
-You think the O.J. trial was the big Sunkist and Minutemaid 
-taste test.
+14.) Bang your head against the wall or corner in the room and mutter, 'shut up, all of you, just shut up!' even if there is no one there other than the receptionist.
 
