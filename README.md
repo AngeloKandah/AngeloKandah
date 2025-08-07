@@ -1,8 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Pizza, Anyone?
+WATER
 
-From Harper's Magazine:
+What does this represent?
 
-Amount of pizza eaten each day in U.S. (acres): 75.
+W
+A
+T
+E
+R 
+
+Waterfall!
 
