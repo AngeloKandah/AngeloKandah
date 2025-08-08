@@ -1,14 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-WATER
+Fire Under Water
 
-What does this represent?
+What's worse than a brunette building a fire under water?
 
-W
-A
-T
-E
-R 
-
-Waterfall!
+A blonde trying to put it out.
 
