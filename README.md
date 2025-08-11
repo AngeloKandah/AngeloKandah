@@ -1,10 +1,32 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Receptionist Etiquette
+My Jobs
 
-An older gentleman had an appointment to see the urologist who shared an office with several other doctors.  The waiting room was filled with patients.  As he approached the receptionist desk he noticed that the receptionist was a large unfriendly woman who looked like a Sumo wrestler.
+My first job was working in an orange juice factory, but I got canned because I couldn't concentrate.
 
-He gave her his name.  In a very loud voice, the receptionist said, 'YES, I HAVE YOUR NAME HERE; YOU WANT TO SEE THE DOCTOR ABOUT IMPOTENCE, RIGHT?'
+Then I worked in the woods as a lumberjack, but I just couldn't hack it, so they gave me the axe.
 
-All the patients in the waiting room snapped their heads around to look at the very embarrassed man.  He recovered quickly, and in an equally loud voice replied, 'NO, I'VE COME TO INQUIRE ABOUT A SEX CHANGE OPERATION, BUT I DON'T WANT THE SAME DOCTOR THAT DID YOURS.'
+After that I tried to be a tailor, but I just wasn't suited for it. The job was only so-so anyhow.
+
+Next I tried working in a muffler factory, but that was exhausting.
+
+I wanted to be a barber, but I just couldn't cut it.
+
+I attempted to be a deli worker, but any way I sliced it, I couldn't cut the mustard.
+
+My best job was being a musician, but eventually I found I wasn't note worthy.
+
+I studied a long time to become a doctor, but I didn't have any patience.
+
+Next was a job in a shoe factory; I tried, but I just didn't fit in.
+
+I became a professional fisherman, but discovered that I couldn't live on my net income.
+
+I thought about becoming a witch, so I tried that for a spell.
+
+I managed to get a good job working for a pool maintenance company, but the work was just too draining.
+
+My last job was working at Starbucks, but I had to quit, because it was always the same old grind.
+
+After many years of trying to find steady work, I finally got a job as a historian, until I realized there was no future in it.
 
