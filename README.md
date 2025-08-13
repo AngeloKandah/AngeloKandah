@@ -1,8 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Captain Hook
+Yo Mama is So Fat
 
-What's worse than getting raped by Jack the Ripper?
-
-Getting fingered by Captain Hook.
+Yo mama is so fat she has to get baptized in Sea World.
 
