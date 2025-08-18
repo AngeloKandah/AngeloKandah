@@ -1,10 +1,15 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Saddam Shame(!)
+On a Truck's Mudflaps
 
-When does Saddam Hussein have his lunch?
+Seen on rear mud-flaps of a large truck
 
-When Tariq Aziz.
+left mud-flap		right mud-flap
 
-(When Tariq has his)
+Passing Side		Suicide
+          		     
+/ ------    		------ \
+\ ------     		------ /
+          		     
+El Paso			El Cruncho
 
