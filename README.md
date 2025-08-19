@@ -1,15 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-On a Truck's Mudflaps
+Bard
 
-Seen on rear mud-flaps of a large truck
+Shakespeare walks into a bar and the bartender shouts at him,
 
-left mud-flap		right mud-flap
-
-Passing Side		Suicide
-          		     
-/ ------    		------ \
-\ ------     		------ /
-          		     
-El Paso			El Cruncho
+'You can't come in here, you're Bard!'
 
