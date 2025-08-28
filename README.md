@@ -1,6 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Scare me
+Blind Date
 
-A guy's on the electric chair. The warden's just about to pull the switch, when the guy gets the hiccups. The warden says, 'Do you have any last requests?' The guy says, '(hic) Yeah... (hic) could you please do (hic) could you please do something to scare me?'
+'How was your blind date?' a college student asked her room-mate. 
+
+'Terrible!' the room-mate answered. 'He showed up in his 1932 Rolls Royce.' 
+
+'Wow! That's a very expensive car. What's so bad about that?' 
+
+'He was the original owner!'
 
