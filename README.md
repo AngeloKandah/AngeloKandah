@@ -1,20 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-A Good-looking Horse
+Two Kids in a Hospital
 
-A city slicker was driving through the country when he spotted a horse standing in a field. He was quite taken with the animal and so pulled over to ask the farmer if it was for sale.
+Two little kids are in a hospital, lying on stretchers next to each other, outside the operating room. 
 
-'Afraid not,' said the farmer.
+The first kid leans over and asks, 'What are you in here for?' The second kid says, 'I'm in here to get my tonsils out and I'm a little nervous.' 
 
-'I'll give you a thousand bucks!' said the city fella.
+The first kid says, 'You've got nothing to worry about. I had that done when I was four. They put you to sleep, and when you wake up they give you lots of Jello and ice cream. It's a breeze.' 
 
-'I can't sell you that horse. He don't look too good,' replied the farmer.
+The second kid then asks, 'What are you here for?' The first kid says, 'A circumcision.' 
 
-'I know horses, and he looks fine. I'll give you two thousand!'
-
-'Well, all right, if you want him so bad.'
-
-The next day, the man returned the horse, screaming that he had been gypped. 'You sold me a blind horse!'
-
-'Well,' said the farmer, 'I told you he didn't look too good.'
+The second kid replies, 'Whoa, Good luck buddy, I had that done when I was born. Couldn't walk for a year!
 
