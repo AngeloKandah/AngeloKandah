@@ -1,10 +1,13 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Not So Horny
+Bridge Over Troubled Water
 
-An elderly couple (BATTERY AND BOODLER) was attending mass.
+Marg and Sam invited a couple over for a evening of bridge.
+'Sam,' Marg said, 'this is the last couple that will ever accept an invitation to come to our house. If you dare to do anything to offend them tonight, I will crucify you!'
 
-About halfway through, BOODLER leans over and says to BATTERY, 'I just let out a silent fart; what do you think I should do?'
+After they played for a while, Marg went into the kitchen to get some refreshments. When she returned, she saw that Sam was sitting at the table by himself.
 
-BATTERY replied, 'That was sexy. Put a new battery in your vibrator; then let's go home and fuck our brains out.'
+She put the tray down and said, 'What did you do to run them off this time?'
+
+'I didn't do anything,' Sam replied. 'We were just sitting here and a mouse ran across the floor. Sue looked at me and said that we can get rid of mice by shoving steel wool into their little holes. All I asked was, 'How do you hold their little feet?' They both got up and left.'
 
