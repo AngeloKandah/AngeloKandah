@@ -1,34 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Bad Cards to Give on Valentines Day
+Environmentalists
 
-10. I admire your strength, I admire your spunk
-But the thing I like best, is getting you drunk.
+A rich lady from California, who was a tree hugger and a vociferous anti-hunter, purchased a piece of timberland in Oregon. There was a large tree on one of the highest points in the tract. She wanted to get a good view of her land so she started to climb the big tree. As she neared the top, she encountered a spotted owl that attacked her. In her haste to escape, the lady slid down the tree to the ground and got many splinters in her private parts.
 
-9. Our love will never become cold and hollow
-Unless, one day, you refuse to swallow.
-
-8. I bought this Valentine's card at the store
-In hopes that, later, you'd be my whore.
-
-7. This feels so good, it feels so right
-I just wish it wasn't $250 a night.
-
-6. You're a woman of style, you're a woman of class
-Especially when I'm spanking, your big-round-fat ass.
-
-5. Before I met you, my heart was so famished
-But now I'm fulfilled. . . SO MAKE ME A SAMICH!!!
-
-4. Through all the things that came to pass
-Our love has grown. . . but so's your ass.
-
-3. You're a honey. . . and you're a cutie
-I just wished you had J-Lo's 'booty'.
-
-2. I don't wanna be sappy or silly or corny
-So, right to the point, let's do it, I'm horny!
-
-1. If you think that hickey looks like a blister,
-you should check out the one that I gave to your sister!
+In considerable pain, she hurried to the nearest country doctor. Being a hunter himself, the doctor listened to her story with great patience and then told her to go into the examining room and he would see if he could help her. She sat and waited for three hours before the doctor reappeared. The angry lady demanded, 'What took you so long?' He smiled and then told her, 'Well, I had to get permits from the Environmental Protection Agency, the Forest Service, and the Bureau of Land Management before I could remove old-growth timber from a recreational area... and I'm sorry, they all turned me down.'
 
