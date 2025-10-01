@@ -1,8 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Bacon in My Ear
+Number 12
 
-A guy walks into a doctor's office. He has a sausage coming out of his ear, a waffle coming out of his nose, and bacon coming out of his other ear. He says worriedly, 'Doc, what's wrong with me?'
+A number twelve walks into a bar and asks the barman for a pint of beer. 
 
-The doctor replies, 'You're not eating properly.'
+'Sorry I can't serve you,' states the barman. 
+
+'Why not?!' asks the number twelve with anger showing in its voice. 
+
+'You're under 21,' replies the barman.
 
