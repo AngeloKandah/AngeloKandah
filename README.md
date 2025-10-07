@@ -1,6 +1,9 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Old-fashioned Way
+Bush's Bills
 
-I make money the old-fashioned way.  My salary is the same as it was ten years ago.
+President Bush looks up from his desk in the Oval Office to see one of his aides nervously approaching him. 
+'What is it now?' sighs the president. 
+'It's this abortion bill,' replies the aide. 'What do you want to do about it?' 
+'Go ahead and pay it,' says the president.
 
