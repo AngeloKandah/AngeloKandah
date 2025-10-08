@@ -1,9 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Bush's Bills
+Weird Facts II
 
-President Bush looks up from his desk in the Oval Office to see one of his aides nervously approaching him. 
-'What is it now?' sighs the president. 
-'It's this abortion bill,' replies the aide. 'What do you want to do about it?' 
-'Go ahead and pay it,' says the president.
+A shark is the only animal that can blink both eyes.
+
+A snail can sleep for three years.
+
+A crocodile cannot move its tongue.
 
