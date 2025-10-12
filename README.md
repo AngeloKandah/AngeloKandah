@@ -1,16 +1,24 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Mozart Beyond the Grave
+Only in America
 
-When Mozart passed away, he was buried in a churchyard. A couple days later, the town drunk was walking through the cemetery and heard some strange noise coming from the area where Mozart was buried. 
+1. Only in America . . . can a pizza get to your house faster than an ambulance.
 
-Terrified, the drunk ran and got the priest to come and listen to it.The priest bent close to the grave and heard some faint, unrecognizable music coming from the grave. Frightened, the priest ran and got the town magistrate.
+2. Only in America . . . are there handicap parking places in front of a skating rink.
 
-When the magistrate arrived, he bent his ear to the grave, listened for a moment, and said, 'Ah, yes, that's Mozart's Ninth Symphony, being played backwards.'
+3. Only in America . . . do drugstores make the sick walk all the way to the back of the store to get their prescriptions while healthy people can buy cigarettes at the front.
 
-He listened a while longer, and said, 'There's the Eighth Symphony, and it's backwards, too. Most puzzling.' 
+4. Only in America . . . do people order double cheese burgers, large fries, and a diet Coke.
 
-So the magistrate kept listening; 'There's the Seventh... the Sixth... the Fifth...' 
+5. Only in America . . . do banks leave both doors to the vault open and then chain the pens to the counters.
 
-Suddenly the realization of what was happening dawned on the magistrate; he stood up and announced to the crowd that had gathered in the cemetery, 'My fellow citizens, there's nothing to worry about. It's just Mozart decomposing.'
+6. Only in America . . . do we leave cars worth thousands of dollars in the driveway and put our useless junk in the garage.
+
+7. Only in America . . . do we use answering machines to screen calls and then have call waiting so we won't miss a call from someone we didn't want to talk to in the first place.
+
+8. Only in America . . . do we buy hot dogs in packages of ten and buns in packages of eight.
+
+9. Only in America . . . do we use the word 'politics' to describe the process so well: 'poli' in Latin meaning 'many' and 'tics' meaning 'bloodsucking creatures.'
+
+10. Only in America . . . do they have drive-up ATM machines with Braille lettering.
 
