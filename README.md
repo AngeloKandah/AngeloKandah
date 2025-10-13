@@ -1,24 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Only in America
+Aerial Luck
 
-1. Only in America . . . can a pizza get to your house faster than an ambulance.
+Halfway along a commercial flight, a stewardess spoke out to the surprised passengers,
 
-2. Only in America . . . are there handicap parking places in front of a skating rink.
+'Ladies and gentlemen! We have the honor to announce that you happen to be aboard the 10,001st flight of Good Grace Airlines! To celebrate this historic event, we are glad to give each of you a special valuable gift.'
 
-3. Only in America . . . do drugstores make the sick walk all the way to the back of the store to get their prescriptions while healthy people can buy cigarettes at the front.
+The passengers immediately broke into a cheerful applause, congratulating each other on the sudden luck they had. Then one man said aloud,
 
-4. Only in America . . . do people order double cheese burgers, large fries, and a diet Coke.
+'This is really exciting! But why didn't you choose the 10,000th flight? I suppose it's a better number for a celebration.'
 
-5. Only in America . . . do banks leave both doors to the vault open and then chain the pens to the counters.
-
-6. Only in America . . . do we leave cars worth thousands of dollars in the driveway and put our useless junk in the garage.
-
-7. Only in America . . . do we use answering machines to screen calls and then have call waiting so we won't miss a call from someone we didn't want to talk to in the first place.
-
-8. Only in America . . . do we buy hot dogs in packages of ten and buns in packages of eight.
-
-9. Only in America . . . do we use the word 'politics' to describe the process so well: 'poli' in Latin meaning 'many' and 'tics' meaning 'bloodsucking creatures.'
-
-10. Only in America . . . do they have drive-up ATM machines with Braille lettering.
+'Certainly we did,' replied the stewardess, 'but unfortunately, because that flight crashed, we decided to shift the celebration.'
 
