@@ -1,22 +1,18 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-What America Makes
+Mr. L's Funny Story.
 
-When all the national leaders met with Bush...
-Germans make your candy, said Germany's leader,
-We abuse it, said Bush.
-Holland makes your remotes, said Holland's leader
-We'd die without those, said Bush.
-Italy and Mexico bring in great food, said Mexico JOKE Italy,
-We stuff ourselves with it, said Bush.
-Japan makes your video games, said Japan's leader;
-Our kids and dads love it, said Bush.
-China makes all the rest, said China's leader,
-Bush said, AMEN.
-WHAT DO YOU MAKE? said all but Bush,
-Bush took them to a farm,
-He took them to a sleping bull.
-The bull had a turd next to it.
-It said 'Made in America',
-Bush told them America makes bull****
+Hello, I am Mr. L, as most people call me. I am going to tell you a story that happened to me years ago.
+
+Here goes!
+
+People were pouring pollution all around they world; strangely, it made certain animals turn gigantic. That happened to a dog one day, it wasn't pretty. I don't know why, but it was chasing me around the city.
+
+Eventually, I gave up and let it do what it wanted to do to me.
+
+It came close to me, lifted its leg and...
+
+I think I know why I it did what it did. I was wearing a shirt with a fire hydrant on it, and all the other ones were broken.
+
+That's my story.
 
