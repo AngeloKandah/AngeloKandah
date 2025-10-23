@@ -1,18 +1,11 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Mr. L's Funny Story.
+The Crash
 
-Hello, I am Mr. L, as most people call me. I am going to tell you a story that happened to me years ago.
-
-Here goes!
-
-People were pouring pollution all around they world; strangely, it made certain animals turn gigantic. That happened to a dog one day, it wasn't pretty. I don't know why, but it was chasing me around the city.
-
-Eventually, I gave up and let it do what it wanted to do to me.
-
-It came close to me, lifted its leg and...
-
-I think I know why I it did what it did. I was wearing a shirt with a fire hydrant on it, and all the other ones were broken.
-
-That's my story.
+One day a man and a woman were driving and they get into a terrible collision with each other. Both cars are wrecked beyond recognition, but they both crawl out of the wreckage unhurt.
+The woman says, 'In a terrible accident...both of us are alive and, well, this must be a sign from God!'
+The man agrees.
+The woman says, 'Well, we should celebrate our lives...here, let's drink to our celebration.' She reaches into her wreckage of her car and pulls out a bottle of champagne which miraculously was not broken or even cracked. The man takes a huge gulp of the wine and passes it to the woman who politely waves it away.
+The man says, 'Don't you want any? It was your idea.'
+The woman says, 'No thanks, I'll wait until the police get here.'
 
