@@ -1,8 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Rabbit
+Progress
 
-What do you call a rabbit who tells jokes?
-
-A FUNNY BUNNY!
+If the opposite of pro is con, isn't the opposite of progress, congress?
 
