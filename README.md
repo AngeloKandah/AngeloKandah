@@ -1,20 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Rudolph
+Camera
 
-A Russian couple were walking down the street in Moscow one night, when the man felt a drop hit his nose. 'I think it's raining,' he said to his wife. 
-
-'No, that felt more like snow to me,' she replied. 
-
-'No, I'm sure it was just rain,' he said. 
-
-Well, as these things go, they were about to have a major argument about whether it was raining or snowing. Just then they saw a Communist Party official walking toward them. 
-
-'Let's not fight about it,' the man said, 'Let's ask Comrade Rudolph whether it's officially raining or snowing.' 
-
-As the official approached, the man said, 'Tell us, Comrade Rudolph, is it officially raining or snowing?' 
-
-'It's raining, of course,' he replied, and walked on. 
-
-But the woman insisted: 'I know that felt like snow!' to which the man quietly replied: 'Rudolph the Red, knows rain, dear.'
+Snow White received a camera as a gift. She happily took many pictures of the Dwarves and their surroundings. When she finished her first batch, she took the film to be developed. After a week or so, she went to get the finished photos. The clerk said the photos were not back from the processor. Snow White was so disappointed that she started to cry. The clerk, trying to console her, said kindly, 'Don't worry, someday your prints will come.'
 
