@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Cellulite Surfin'
+Stripe
 
-Yo momma is so fat, that every time you smack her butt, you can ride the waves!
+Yo Momma smells so bad the skunk gave her his stripe.
 
