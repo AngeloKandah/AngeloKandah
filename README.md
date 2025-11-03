@@ -1,8 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-HIGHER POWER
+Phone Call
 
-A Sunday school teacher said to her children, 'We have been learning how powerful kings and queens were in Bible times. But, there is a higher power. Can anybody tell me what it is?' 
+The phone call...
 
-One child blurted out, 'Aces!'
+A married couple were asleep when the phone rang at 2 in the morning.
+
+The wife (a blonde), picked up the phone, listened a moment and said, 'How should I know, that's 200 miles from here!' and hung up.
+
+Curious, the husband said, 'Who was that?'
+
+And his lovely wife replies, 'I don't have any idea who it was. It was some stupid woman wanting to know 'if the coast is clear.'
 
