@@ -1,14 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Phone Call
+A Lawer in a Ambulance!
 
-The phone call...
-
-A married couple were asleep when the phone rang at 2 in the morning.
-
-The wife (a blonde), picked up the phone, listened a moment and said, 'How should I know, that's 200 miles from here!' and hung up.
-
-Curious, the husband said, 'Who was that?'
-
-And his lovely wife replies, 'I don't have any idea who it was. It was some stupid woman wanting to know 'if the coast is clear.'
+Bob and Joe, a couple of personal injury lawyers, were discussing conditions in the legal profession. 'How's business?' asked Bob. 
+'Absolutely rotten!' responded Joe. 'How have you been doing?' 'Even worse,' Bob replied. 'I just chased an ambulance twelve miles and found a LAWYER inside it.'
 
