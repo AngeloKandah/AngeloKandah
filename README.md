@@ -1,7 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-A Lawer in a Ambulance!
+Don't Buy A Labrador!
 
-Bob and Joe, a couple of personal injury lawyers, were discussing conditions in the legal profession. 'How's business?' asked Bob. 
-'Absolutely rotten!' responded Joe. 'How have you been doing?' 'Even worse,' Bob replied. 'I just chased an ambulance twelve miles and found a LAWYER inside it.'
+Paddy tells Mick he's thinking of buying a Labrador dog.
+
+'Oh, I wouldn't if I were you!', says Mick. 'Have you seen how many of their owners go blind?'
 
