@@ -1,8 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Cigarettes in Hot Water
+Yo Momma is So Fat that
 
-What do you get when you mix cigarettes in hot water?
-
-A soggy butt.
+Yo Momma is so fat that when she put on a yellow jacket  kids tried to get on it to go to school because they thought it was a bus.
 
