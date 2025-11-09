@@ -1,6 +1,13 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Yo Momma is So Fat that
+Doctor's Orders
 
-Yo Momma is so fat that when she put on a yellow jacket  kids tried to get on it to go to school because they thought it was a bus.
+A woman accompanied her husband to the doctor's office.
+
+After his checkup, the doctor called the wife into his office alone. He said, 'Your husband is suffering from a very severe stress disorder. If you don't do the following, your husband will surely die.' 
+'Each morning, fix him a healthy breakfast.  Be pleasant at all times. For lunch make him a nutritious meal.  For dinner prepare an especially nice meal for him.  Don't burden him with chores.  Don't discuss your problems with him, it will only make his stress worse.   No nagging.  And most importantly, make love with your husband several times a week.  If you can do this for the next 10 months to a year, I think your husband will regain his health completely.' 
+
+On the way home, the husband asked his wife.  'What did the doctor say?'
+
+'He said you're going to die,'  she replied.
 
