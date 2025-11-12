@@ -1,8 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-It is Inevitable
+Midwarf
 
-The three stages of sex in marriage:
-
-Tri-weekly, Try-weekly, Try-weakly.
+Some people have friends who are dwarfs, not me I have a friend who is a midget dwarf.  He is the guy who poses for the sport trophys
 
