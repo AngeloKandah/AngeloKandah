@@ -1,104 +1,34 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Pick Up Lines
+Chuck Norris Facts: 34
 
-These pick up lines are so nasty, they're insults...
+Lightning never strikes twice in one place because Chuck Norris is looking for it. 
 
-The word of the day is 'legs.' Let's go back to my place and spread the word.
+Chuck Norris was once a knight in King Arthur's court.  He was known as Sir Beatdown.
 
-That outfit would look great in a crumpled heap on my bedroom floor tomorrow morning.
+Chuck Norris once played rugby by himself.  He went undefeated. 
 
-I want to melt in your mouth, not in your hand.
+In Desert Storm the reason why the Iraqi army surrendered so quickly because they knew Chuck Norris was coming. 
 
-I like every bone in your body, especially mine.
+Chuck Norris has never looked a baby in the eyes cause it might him cry but if he does it also makes him want to punch a baby.
 
-How about you sit on my lap and we'll see what pops up?
+Chuck norris doesnt go at the speed of light, he goes at the speed of Norris
 
-Will you be my love buffet so I can lay you out on a table and take anything I want?
+Chuck Norris does not know about this website. If he did he would have just deleted the internet.
 
-Why don't you sit on my face and let me eat my way to your heart?
+Before sliced bread, people used to say 'Thats the greatest thing since Chuck Norris'. But Chuck Norris was displeased by this. So he roundhouse kicked a loaf of bread into slices.
 
-Baby, I'm like milk, I'll do your body good.
+Chuck Norris's sweat has burned holes in concrete.
 
-Is that a mirror in your pants because I can see myself in them.
+The wind of Chuck Norris's round house kick can be felt from 1600 million miles away
 
-Hey baby, let's play army; I'll lay down you can blow me up.
+Chuck Norris has held the World Championship in every weight class at the same time.
 
-If your left leg is thanksgiving and your right leg is Christmas, can I visit you in between the holidays?
+There is no Control button on Chuck Norris' computer. Chuck Norris is always in control.
 
-If I told you that you had a nice body, would you hold it against me?
+Chuck Norris is so bad he makes viruses sick. As such, Chuck Norris is also responsible for the eradication of smallpox.
 
-You're like Pringles. Once I pop you, I can't stop you!
+There are four legal methods of execution in the United States: lethal injection, gas chamber, electric chair and Chuck Norris.
 
-I want to kiss you passionately on the lips, and then move up to your belly-button.
-
-Is it hot in here, or is it just you?
-
-If you were a car door I would slam you all night long.
-
-Baby, you're so fine, I want to pour milk all over you and make you part of my complete breakfast.
-
-How about you sit on my lap and we'll straighten things out?
-
-Baby, I'd run a mile for your vertical smile.
-
-Nice shirt.... wanna fuck?
-
-If I could rearrange the alphabet I'd put U and I together.
-
-Are you from Tennessee? Because you're the only ten I see!
-
-Can I have fries with that shake?
-
-I've got the F, the C, and the K. All I need is U.
-
-You're so sweet you're giving me a toothache.
-
-Hey baby, can I tickle your belly button from the inside?
-
-If I had eleven roses and you, I'd have a dozen.
-
-Hi, I'm new in town. Can I have directions to your house?
-
-Pardon me, is there a mirror in your pocket? Because I can see myself in your pants.
-
-Do you know CPR? Because you take my breath away.
-
-Your daddy must have been a drug dealer 'cause you're dope.
-
-My face is leaving in 15 minutes...be on it!
-
-I'd look good on you.
-
-When does your centerfold come out?
-
-So do ya wanna see something really swell?
-
-I've seem to have lost my number, can I have yours?
-
-I've got the hot dog and you got the buns.
-
-Is your name Gillette? ...because you're the best a man can get.
-
-Are we near the airport or is that just my heart taking off?
-
-I may not be Fred Flinstone, but I sure can make your bed rock.
-
-You have nice legs. What time do they open?
-
-Do you like Subway? How about my foot-long?
-
-Hey that dress looks nice. Can I talk you out of it?
-
-Is that a keg in your pants? Cause I'd just love to tap that ass!
-
-Are those pants from outer space? Cause that ass is out of this world.
-
-You're like a championship bass, I don't know if I should mount you or eat you.
-
-Is your dad a terrorist? Because you're the bomb!
-
-Are you a parking ticket, cause you have fine written all over you?
-
-If I flip this coin, what are the chances of me getting head tonight?
+Earth's emergency defence plan in case of alien invasion is Chuck Norris.
 
