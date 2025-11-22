@@ -1,34 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Chuck Norris Facts: 34
+The Girl at the Restaurant
 
-Lightning never strikes twice in one place because Chuck Norris is looking for it. 
-
-Chuck Norris was once a knight in King Arthur's court.  He was known as Sir Beatdown.
-
-Chuck Norris once played rugby by himself.  He went undefeated. 
-
-In Desert Storm the reason why the Iraqi army surrendered so quickly because they knew Chuck Norris was coming. 
-
-Chuck Norris has never looked a baby in the eyes cause it might him cry but if he does it also makes him want to punch a baby.
-
-Chuck norris doesnt go at the speed of light, he goes at the speed of Norris
-
-Chuck Norris does not know about this website. If he did he would have just deleted the internet.
-
-Before sliced bread, people used to say 'Thats the greatest thing since Chuck Norris'. But Chuck Norris was displeased by this. So he roundhouse kicked a loaf of bread into slices.
-
-Chuck Norris's sweat has burned holes in concrete.
-
-The wind of Chuck Norris's round house kick can be felt from 1600 million miles away
-
-Chuck Norris has held the World Championship in every weight class at the same time.
-
-There is no Control button on Chuck Norris' computer. Chuck Norris is always in control.
-
-Chuck Norris is so bad he makes viruses sick. As such, Chuck Norris is also responsible for the eradication of smallpox.
-
-There are four legal methods of execution in the United States: lethal injection, gas chamber, electric chair and Chuck Norris.
-
-Earth's emergency defence plan in case of alien invasion is Chuck Norris.
+Once there was a girl at a restaurant and ordered anything in a saucer. The waiter was walking to her table when the girl tripped him. The waiter said 'Why did you trip me?' 
+And the girl, without the least of the waiter's worries simply said 'I wanted to see a flying saucer!'
 
