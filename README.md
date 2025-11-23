@@ -1,7 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Girl at the Restaurant
+The Dirtiest Word I Know
 
-Once there was a girl at a restaurant and ordered anything in a saucer. The waiter was walking to her table when the girl tripped him. The waiter said 'Why did you trip me?' 
-And the girl, without the least of the waiter's worries simply said 'I wanted to see a flying saucer!'
+Every time I hear the dirty word 'Exercise', I wash my mouth out with chocolate.
 
