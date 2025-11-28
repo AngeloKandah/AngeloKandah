@@ -1,6 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-I Wonder
+???
 
-'I wonder if my friend, Kent as submitted a joke about me saying how brave I am.'
+If however you do need to take Viagra, remember to
+swallow them quickly otherwise you'll get a stiff neck.
+
+A shipment of Viagra was highjacked today. Police have 
+put out an All-Points bulletin: Be on the lookout for 
+two hardened criminals!
+
+They will face a stiff sentence when convicted and they'll 
+surely be sent to a Penal Institution.
 
