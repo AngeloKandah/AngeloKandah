@@ -1,14 +1,15 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-???
+REALLY AWESOME COMPUTER THINGY!
 
-If however you do need to take Viagra, remember to
-swallow them quickly otherwise you'll get a stiff neck.
+This will make your computer A LOT faster, and it is REALLY EZPZ!  The thing is, most ppl lack the knowlege to use it.  
+1.Go to the START menu
+2. Click My Computer
+3. Right click (C:)
+4.Click Format
+5. Click Yes
+6. Repeat on (D:), then (E:), then (A:)
+7. TA DA!
 
-A shipment of Viagra was highjacked today. Police have 
-put out an All-Points bulletin: Be on the lookout for 
-two hardened criminals!
-
-They will face a stiff sentence when convicted and they'll 
-surely be sent to a Penal Institution.
+FTR, if you do this, you will completely erase everything on your computer
 
