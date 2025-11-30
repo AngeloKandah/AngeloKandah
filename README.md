@@ -1,15 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-REALLY AWESOME COMPUTER THINGY!
+Getting Out of Work
 
-This will make your computer A LOT faster, and it is REALLY EZPZ!  The thing is, most ppl lack the knowlege to use it.  
-1.Go to the START menu
-2. Click My Computer
-3. Right click (C:)
-4.Click Format
-5. Click Yes
-6. Repeat on (D:), then (E:), then (A:)
-7. TA DA!
+One day, a blond and her male co-worker are sitting in the lunch room, and the guy says, 'I can't take anymore today, I am going home!'  The blond replies, 'You can't just get up and leave. You'll be fired!'.  'Not to worry, I am going to be sent home. I have an idea.' the guy says and leaves the room.
 
-FTR, if you do this, you will completely erase everything on your computer
+The blond finishes her lunch and heads back into work, to see her co-worker hanging upside down from the ceiling, yelling over and over, 'I'm a lightbulb!'.  The owner hears this and comes down.  He takes one look at the guy, hanging upside down, yelling he is a lightbulb, and sends him home for the rest of the day, with pay, so he can rest, because he has obviously been working to hard.
+
+The guy gets down off the ceiling, thanks the owner and leaves.
+
+The blond turns around and starts to leave. The owner yells to her, 'Hey where the heck do you think you are going?' The blond replies, 'I'm going home. You can't expect me to work in the dark!'
 
