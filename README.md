@@ -1,8 +1,22 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-DEAD People
+Bumper Stickers
 
-If only DEAD people understand hexadecimal, how many people understand hexadecimal? 
+My Kid Got Your Honor Roll Student Pregnant. 
 
-57005.
+Cleverly Disguised As A Responsible Adult 
+
+The Face Is Familiar, But I Can't Quite Remember My Name 
+
+I Do Whatever My Rice Krispies Tell Me To 
+
+Fight Crime: Shoot Back! 
+
+Caution -- Driver Legally Blonde! 
+
+If You Drink Don't Park. Accidents Cause People. 
+
+If You're Not A Hemorrhoid, Get Off My Ass. 
+
+You're Just Jealous Because The Voices Are Talking To Me
 
