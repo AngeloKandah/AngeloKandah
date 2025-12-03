@@ -1,22 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Bumper Stickers
+Aren't They Good!
 
-My Kid Got Your Honor Roll Student Pregnant. 
+The university's gymnasium hallway displayed basketball team pictures from the past forty years.
 
-Cleverly Disguised As A Responsible Adult 
+In every photo, one player, sitting front row center, held a basketball identifying the year of the team: 94-95, 95-96, 96-97, 97-98, etc.
 
-The Face Is Familiar, But I Can't Quite Remember My Name 
+One day, a senior on the basketball team noticed a cute, blonde freshman cheerleader staring curiously at the photos. The senior, hoping to score a few points off the court, commented about the team's history.
 
-I Do Whatever My Rice Krispies Tell Me To 
-
-Fight Crime: Shoot Back! 
-
-Caution -- Driver Legally Blonde! 
-
-If You Drink Don't Park. Accidents Cause People. 
-
-If You're Not A Hemorrhoid, Get Off My Ass. 
-
-You're Just Jealous Because The Voices Are Talking To Me
+Impressed, the cute, blonde freshman cheerleader said: 'Isn't it amazing how the teams always won by just one point?'
 
