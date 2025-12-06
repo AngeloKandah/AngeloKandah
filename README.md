@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Fat
+Basketball Hoops and Misdemeanor
 
-Yo Mama's so fat the only thing stopping her from getting into Jenny Craig is the door!
+Basketball hoops are like misdemeanor. The more I miss it da meanor I get.
 
