@@ -1,14 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Giraffe Joke
+Blonde and Brunette
 
-Knock-knock
+A blonde and brunette jump off a cliff at the same time. Why did the brunette hit the floor before the blonde?
 
-Who's there?
 
-Giraffe
 
-Giraffe who?
 
-Giraffaggot!
+
+The blonde asked for directions!
 
