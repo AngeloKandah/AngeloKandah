@@ -1,6 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Two Peanuts
+Short One Liners
 
-Two peanuts walk into a bar, and one was a salted.
+1. A spoon full of sugar helps the medicine go down, unless you're a diabetic!!!!!
+
+2. People who live in glass houses should have sex in their basements!!!
 
