@@ -1,6 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Redneck: Four- Wheeler
+Gandhi
 
-You might be a redneck if there is a four-wheeler parked in your bedroom.
+Mahatma Gandhi, as you know, walked barefoot most of the time, which produced an impressive set of calluses on his feet. He also ate very little, which made him rather frail and with his odd diet, he suffered from bad breath. This made him ....what? 
+
+
+
+
+
+A super calloused fragile mystic hexed by halitosis.
 
