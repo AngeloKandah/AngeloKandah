@@ -1,12 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Gandhi
+Faster
 
-Mahatma Gandhi, as you know, walked barefoot most of the time, which produced an impressive set of calluses on his feet. He also ate very little, which made him rather frail and with his odd diet, he suffered from bad breath. This made him ....what? 
+Whats faster than a speeding bullet, more powerfull than a locomotive, able to leap tall buildings and has a carpark?
 
-
-
-
-
-A super calloused fragile mystic hexed by halitosis.
+Super market
 
