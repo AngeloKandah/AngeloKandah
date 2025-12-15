@@ -1,8 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Faster
+Wanted
 
-Whats faster than a speeding bullet, more powerfull than a locomotive, able to leap tall buildings and has a carpark?
-
-Super market
+One day Bob (a boy) went to Sally (a beautiful girl). Bob told her, 'Sal, Jack (a boy) wants you.'
+She replied, 'I know.'
+They stand in silence for a while.
+Bob finally said, 'I mean he needs your help.'
+'Oh.'
 
