@@ -1,10 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Wanted
+What's the Big Dif.?
 
-One day Bob (a boy) went to Sally (a beautiful girl). Bob told her, 'Sal, Jack (a boy) wants you.'
-She replied, 'I know.'
-They stand in silence for a while.
-Bob finally said, 'I mean he needs your help.'
-'Oh.'
+What's the difference between a religious woman and a supposedly regular woman in a bathtub?
+
+One has HOPE in her soul.
 
