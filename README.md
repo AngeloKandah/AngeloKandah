@@ -1,6 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Rehearsal
+Deep Puddle
 
-If the entire world was a stage and God was the director, what we need is a rehearsal.
+A man traveling down a country road was forced to stop before a giant puddle covering the entire road. Looking to the side of the road, the man noticed a farmer leaning on a fence. 'Think it's safe to cross?' the man asked.
+
+'I reckon so,' replied the farmer.
+
+The car was immediately swallowed by the puddle as the man drove in. In fact, it was so deep that he had to roll his window down to swim out of his car back to the surface. As his head broke the surface, the man said to the farmer, 'I thought you said I could safely drive through this puddle!'
+
+'Well, shoot!' said the farmer, scratching his head. 'It only come up chest-high on my ducks!'
 
