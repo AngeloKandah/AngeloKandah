@@ -1,9 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Gay Cow
+CHRISTMAS
 
-A boy asked to his girl friends: 
-What does a gay cow eat?
-all of his friends failed to answer.
-Then he stood up, and with a gay-est falsetto voice he said: Haaaaaaaaaaaaayyyyyyy!!!
+Five days before Christmas, Santa was having a horrible day.  And by horrible, I mean his wife was sick with the flu, 23 elfs called in sick, and nothing was getting done, so they were really behind schedule.  
+
+*Knock-Knock,* Santa heard, so he went to go open the door.  There was an Angel carrying a christmas tree.  'Where would you like me to put this?' asked the angel. 
+
+And that is why the Angel is put on top of the Christmas tree.
 
