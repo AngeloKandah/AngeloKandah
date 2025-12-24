@@ -1,26 +1,13 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Being Screwed By An Attorney
+Need More Excercise
 
-'Can I help you?' the madam asked
+A 75-year-old woman went to the doctor for a check up. The doctor told her she needed more cardiovascular activity, and recommended that she engage in sexual activity three times a week. A bit embarrassed, she said to the doctor, 'Please tell my
+husband.'
 
-'I want Natalie,' the elderly man replied.
+The doctor went out into the waiting room and told the husband that his wife needed sex three times a week. The 80-year-old husband replied, 'Which days?'
 
-'Sir, Natalie is our most expensive lady, perhaps someone else...'
+The doctor answered, 'Monday, Wednesday, and Friday would be ideal.
 
-'No,' said the man, 'I must see Natalie.'
-
-Just then Natalie appeared and announced to the old man that she charges $10,000 per visit. Without blinking, the man reached into his pocket and handed her 100 hundred dollar bills. The two went up to a room for an hour, after which the man calmly left.
-
-The next night he appeared again, demanding to see Natalie. The madam explained that no one had ever come back two nights in a row and that there were no discounts. It was still $10,000 per visit. Again, the man took out the money and the two went up to the room.
-
-When he showed up the third consecutive night, no one could believe it. Again he handed Natalie the money, and up to the room they went.  At the end of the hour, Natalie questioned the man: 'No one has ever paid for my services three nights in a row. Where are you from?'
-
-The old man replied, 'I'm from Philadelphia.'
-
-'Really?' replied Natalie 'I have family who live there.'
-
-'Yes, I know,' said the old man. 'Your father died; I'm your sister's attorney. She asked me to give you your $30,000.'
-
-So the moral here is that some things in life are certain: death, taxes, and being screwed by an attorney.
+The husband said, 'I can bring her on Monday and Wednesday, but on Fridays, she'll have to take the bus.'
 
