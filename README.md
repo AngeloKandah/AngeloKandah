@@ -1,6 +1,18 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Restaurant
+My Dad
 
-A family was eating out at a restaurant. The waiter who had been standing by them said in quite an upset manner 'Well I guess I'm gonna go home, make myself a cold tuna sandwich, watch the news, and then cry myself to sleep again.' The mother of the family looks at him in pity and says ' would you like to join us?' The waiter shouts back, 'Did you not just hear me?! I have an evening planned!'
+Two small boys, not yet old enough to be in school, were overheard talking at the zoo one day.
+
+'My name is Billy. What's yours?' asked the first boy.
+
+'Tommy,' replied the second.
+
+'My Daddy's an accountant. What does your Daddy do for a living?' asked Billy.
+
+ Tommy replied, 'My Daddy's a lawyer.'
+
+'Honest?' asked Billy.
+
+'No, just the regular kind', replied Tommy.
 
