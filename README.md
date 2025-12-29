@@ -1,18 +1,13 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-My Dad
+Sick Blonde
 
-Two small boys, not yet old enough to be in school, were overheard talking at the zoo one day.
+A blonde came home from her first day commuting into the city. 
+Her mother noticed she was looking a little peaked and asked, 'Honey, are you feeling all right?'
 
-'My name is Billy. What's yours?' asked the first boy.
+'Not really,' the blonde replied. 'I'm nauseous from sitting backward on the train.'
 
-'Tommy,' replied the second.
+'Poor dear,' Mom said. 'Why didn't you ask the person sitting across from you to switch seats for a while?'
 
-'My Daddy's an accountant. What does your Daddy do for a living?' asked Billy.
-
- Tommy replied, 'My Daddy's a lawyer.'
-
-'Honest?' asked Billy.
-
-'No, just the regular kind', replied Tommy.
+'I couldn't,' she replied, 'there was no one there.'
 
