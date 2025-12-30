@@ -1,13 +1,20 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Sick Blonde
+The Good Stuff
 
-A blonde came home from her first day commuting into the city. 
-Her mother noticed she was looking a little peaked and asked, 'Honey, are you feeling all right?'
+What does a blonde and a screendoor have in common?
 
-'Not really,' the blonde replied. 'I'm nauseous from sitting backward on the train.'
 
-'Poor dear,' Mom said. 'Why didn't you ask the person sitting across from you to switch seats for a while?'
+The harder you bang them the looser they get.
 
-'I couldn't,' she replied, 'there was no one there.'
+
+Why did the blonde climb the glass wall?
+
+
+To see what was on the other side.
+
+
+What is the first thing a blonde does in the morning?
+
+Get dressed and go home
 
