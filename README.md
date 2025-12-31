@@ -1,20 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Good Stuff
+The Unkindest Cut
 
-What does a blonde and a screendoor have in common?
+A machine operator comes home from the factory and tells his wife, 'Honey, I've got some good news and some bad news. First, the good news, I got $25,000 severance pay!'
 
+His wife said, '$25,000 in severance pay? That's great! So what's the bad news?'
 
-The harder you bang them the looser they get.
-
-
-Why did the blonde climb the glass wall?
-
-
-To see what was on the other side.
-
-
-What is the first thing a blonde does in the morning?
-
-Get dressed and go home
+He said, 'Wait till you hear what was severed!'
 
