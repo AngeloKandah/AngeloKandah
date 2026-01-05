@@ -1,8 +1,11 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Muslim Air Mattress?
+Blonde Mechanics
 
-Did you hear about the new muslim air mattress?
-
-It blows itself up.
+A blonde got a dent in her car and took it in to the mechanic.
+The mechanic, noticing that the woman was a blonde, decided to have some fun. 
+So he told her all she had to do was take it home and blow in the tailpipe until the dent popped itself out. 
+After 15 minutes of this, the blonde's blonde friend came over and asked what she was doing. 
+'I'm trying to pop out this dent, but it's not really working.' 
+'Duh. You have to roll up the windows first!'
 
