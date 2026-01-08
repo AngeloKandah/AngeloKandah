@@ -1,9 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Chocolate Chip Cookies
+Size
 
-An old, old man was lying in his death bed upstairs.  His most favorite food in the world was chocolate chip cookies.  As he lay there, gasping for each breath, he was sure he could smell freshly-baked chocolate chip cookies.  
-
-He crawled out of bed and slowly limped down the stairs.  Sure enough, across the kitchen, there was a huge platter of chocolate chip cookies on the table.
-He finally made it to the table and he reached a shaking hand towards the cookies.  Suddenly, his wife slapped his hand  sharply and yelled, 'DON'T TOUCH THOSE-they're for the funeral!'
+A man and a women are making love for the first time. 'Cor what a small organ!' the women sniggered
+'It may be small, darling' replied the man 'but it's never played in a Cathedral before!'
 
