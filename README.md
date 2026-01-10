@@ -1,6 +1,13 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Sex Education
+Golden Rat
 
-Mr. Smith wanted to become a teacher in the worst way, but the only job he could find was as an instructor at an all female college teaching sex education. His wife was a very jealous woman so Mr. Smith decided he would tell his wife that he would be teaching sailing at this college so that she would not get angry. He was very happy and for months all was well. As fate would have it, one day in the grocery store check out lane, Mrs. Smith overheard a group of girls standing in line behind her talking about college and their instructor Mr. Smith. The girls went on and on about how great this Mr. Smith was at teaching their class. The cashier handed Mrs. Smith her change and said, 'Have a great day Mrs. Smith, and thank you, again.' One of the girls in line heard the cashier, and asked Mrs. Smith if she was related to the Mr. Smith that was teaching at the college. Mrs. Smith replied, 'Yes, he is my husband.' Well that set off a torrent of accolades about how knowledgeable Mr. Smith was about the subject matter he was teaching, about how he got the whole class to discuss their fears about learning the subject. Well Mrs. Smith was taken back by what she heard from these girls and replied, 'I don't know how you find him to be so gifted at teaching you this course. You know he only tried it twice in his life. The first time he tried it, he got sick, and the second time, his hat blew off and he just quit.'
+A man walked into a curio store and was shopping around. After awhile, a golden rat interested him and he went to purchase it.
+'That'll be $20 for the rat and $1,000 for the story behind it,' said the shop owner. 
+
+'Thanks, but I'll just take the rat for $20 and leave the story'.  He bought the golden rat and left the store. While walking down the street, he saw all sorts of rats following him. The further he walked, even more rats came. He went down to the docks and still more rats ran out and followed him. So he walked out into the water, and all the rats drowned. He returned to the curio store soon after. 
+
+'Sooo,' said the proprietor. 'You've come back for the story, I thought so!' 
+
+'Nope,' said the man. 'Got any golden lawyers?'
 
