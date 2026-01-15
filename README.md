@@ -1,6 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-90210
+Red TITLE Purple
 
-Yo momma is so fat that the last time she saw 90210 is when she stepped on the bathroom scale!
+Two ships, one carrying lots of red paint, the other carrying lots of purple paint, crashed on a desert island.
+
+The drivers are now marooned.
 
