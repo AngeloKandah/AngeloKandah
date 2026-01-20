@@ -1,14 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Dying Irish Nun
+Why 1
 
-The wise old Mother Superior from county Tipperary was dying. The nuns gathered around her bed trying to make her comfortable. They gave her some warm milk to drink, but she refused it. Then one nun took the glass back to the kitchen. 
-
-Remembering a bottle of Irish whiskey they had received as a gift the previous Christmas, she opened and poured a generous amount into the warm milk. 
-
-When she walked back at Mother Superior's bed, she held the glass to her lips. Mother drank a little, then a little more. Before they knew it, she had drunk the whole glass down to the last drop. 
-
-'Mother,' the nuns asked with earnest, 'please give us some wisdom before you die.' 
-
-She raised herself up in bed with a pious look on her face and said, 'Don't sell that cow.'
+Why did the limping man sit on a scorpion?
+ 
+He thought that it would be 'pinched'!
 
