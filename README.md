@@ -1,8 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Why 1
+Irishman
 
-Why did the limping man sit on a scorpion?
- 
-He thought that it would be 'pinched'!
+Paddy was an inveterate drunkard. The parish priest ran into him one day totally inebriated, attempting to stumble home, and gave him a strong lecture against drinking.
+
+The good father was able to convince Paddy that, 'If you continue drinking as you do, you'll gradually get smaller and smaller, and eventually you'll turn into a mouse.'
+
+This frightened the life out of Paddy. He went home that night, and could not get that thought out of his mind. He couldn't sleep for a week worrying about the priest's threat and finally said to his wife, 'Bridget....if you should notice me getting smaller and smaller, will ye kill that blasted cat?'
 
