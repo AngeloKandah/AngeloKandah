@@ -1,34 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Chuck Norris Facts: 4
+Take with Water
 
-Chuck Norris does not teabag the ladies. He potato-sacks them. 
+After giving a woman a full medical examination, the doctor explained his prescription as he wrote it out. 'When you get up, take the green pill with a glass of water.  Take the blue pill with a glass of water after lunch.  Then just before going to bed, take the red pill with another glass of water.'
 
-Pluto is actually an orbiting group of British soldiers from the American Revolution who entered space after the Chuck gave them a roundhouse kick to the face. 
+'Exactly what is my problem, Doctor?' the woman asked.
 
-When Chuck Norris goes to donate blood, he declines the syringe, and instead requests a hand gun and a bucket. 
-
-There are no steroids in baseball. Just players Chuck Norris has breathed on. 
-
-Chuck Norris once challenged Lance Armstrong in a 'Who has more testicles?' contest. Chuck Norris won by 5. 
-
-Chuck Norris was the fourth wise man, who gave baby Jesus the gift of beard, which he carried with him until he died. The other three wise men were enraged by the preference that Jesus showed to Chuck's gift, and arranged to have him written out of the bible. All three died soon after of mysterious roundhouse-kick related injuries. 
-
-Chuck Norris sheds his skin twice a year. 
-
-When Chuck Norris calls 1-900 numbers, he doesnt get charged. He holds up the phone and money falls out. 
-
-Chuck Norris once ate a whole cake before his friends could tell him there was a stripper in it. 
-
-Some people like to eat frogs' legs. Chuck Norris likes to eat lizard legs. Hence, snakes. 
-
-There are no races, only countries of people Chuck Norris has beaten to different shades of black and blue. 
-
-When Chuck Norris was denied an Egg McMuffin at McDonald's because it was 10:35, he roundhouse kicked the store so hard it became a Wendy's. 
-
-Chuck Norris can't finish a 'color by numbers' because his markers are filled with the blood of his victims. Unfortunately, all blood is dark red. 
-
-A Chuck Norris-delivered Roundhouse Kick is the preferred method of execution in 16 states. 
-
-When Chuck Norris falls in water, Chuck Norris doesn't get wet. Water gets Chuck Norris.
+'You're not drinking enough water.'
 
