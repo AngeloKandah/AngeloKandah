@@ -1,10 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Take with Water
+Dog Without Legs
 
-After giving a woman a full medical examination, the doctor explained his prescription as he wrote it out. 'When you get up, take the green pill with a glass of water.  Take the blue pill with a glass of water after lunch.  Then just before going to bed, take the red pill with another glass of water.'
+What do you call a dog without legs?
 
-'Exactly what is my problem, Doctor?' the woman asked.
-
-'You're not drinking enough water.'
+It doesn't matter - he won't come, anyway.
 
