@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Dog Without Legs
+Tables?
 
-What do you call a dog without legs?
+Teacher: Recite your tables to me, Joan.
 
-It doesn't matter - he won't come, anyway.
+Joan: Dining table, kitchen table, bedside table...
 
