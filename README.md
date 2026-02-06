@@ -1,10 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Police Exercise
+The Castle
 
-One night a man is driving in his car and hears police sirens behind him. The man knows that with his car he could never out-drive the cop, so, seeing the officer looks fat and out of shape, he opens his car door and makes a run for it.
+A group of American tourists were on a guided tour through an ancient castle in Europe.
 
-The chase goes on about 20 minutes, with the cop finally catching him.
+'Ladies and gentlemen,' the guide said, 'this castle is over 700 years old. Nothing has been altered or touched in all those years.'
 
-The cop, completely out of breath, tells the man that he will not bring him to the station on one condition - the man, wondering why the cop wasn't going to turn him in, asked what the condition was. The cop said he wouldn't turn him in if he would help him lose another 5 pounds!
+'Sounds like they have the same cheap landlord I have!' exclaimed one of the tourists.
 
