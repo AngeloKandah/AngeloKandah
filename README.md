@@ -1,10 +1,16 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Castle
+What Were You Thinking?
 
-A group of American tourists were on a guided tour through an ancient castle in Europe.
+What starts with a p and ends with the letters orn?
 
-'Ladies and gentlemen,' the guide said, 'this castle is over 700 years old. Nothing has been altered or touched in all those years.'
+Popcorn! What were you thinking?
 
-'Sounds like they have the same cheap landlord I have!' exclaimed one of the tourists.
+What starts with a f and ends with the letters uck?
+
+Firetruck! What were you thinking?
+
+What starts with a b and ends with the letters itch?
+
+Bewitch! What were you thinking?
 
