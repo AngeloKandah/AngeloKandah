@@ -1,16 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-What Were You Thinking?
+A Man Walks Into a Bar...
 
-What starts with a p and ends with the letters orn?
+A man walks into a bar. He sees a good looking, smartly dressed woman perched on a bar stool. He walks up behind her and says, 'Hi there, good looking, how's it going?' 
 
-Popcorn! What were you thinking?
+Having already had a few power drinks, she turns around, faces him, looks him straight in the eye and says, 'Listen! I'll screw anybody, anytime, anywhere, your place, my place, front door, back door, it doesn't matter. I've been doing it ever since I got out of college. I just flat ass love it.' 
 
-What starts with a f and ends with the letters uck?
-
-Firetruck! What were you thinking?
-
-What starts with a b and ends with the letters itch?
-
-Bewitch! What were you thinking?
+Eyes now wide with interest he says, 'No kidding, I'm a lawyer too! What firm are you with?'
 
