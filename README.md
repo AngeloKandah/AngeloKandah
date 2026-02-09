@@ -1,10 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-A Man Walks Into a Bar...
+Church
 
-A man walks into a bar. He sees a good looking, smartly dressed woman perched on a bar stool. He walks up behind her and says, 'Hi there, good looking, how's it going?' 
+How do you know if you're in a gay church?
 
-Having already had a few power drinks, she turns around, faces him, looks him straight in the eye and says, 'Listen! I'll screw anybody, anytime, anywhere, your place, my place, front door, back door, it doesn't matter. I've been doing it ever since I got out of college. I just flat ass love it.' 
-
-Eyes now wide with interest he says, 'No kidding, I'm a lawyer too! What firm are you with?'
+If half the congregation is kneeling!
 
