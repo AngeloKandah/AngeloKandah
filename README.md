@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Church
+Rain
 
-How do you know if you're in a gay church?
-
-If half the congregation is kneeling!
+Joel: 'How's the progress on new house that you are building Pete?'
+Peter: 'Things are really slow at the moment.'
+Joel: 'Yeah, I guess all this rain would be putting a dampener on things...'
 
