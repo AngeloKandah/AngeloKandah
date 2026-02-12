@@ -1,8 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Not Try to Sing
+WATER TO WINE
 
-What part of music is the part you'd better not try to sing?
+An Irish priest is driving down to New York and gets stopped for speeding in Connecticut. The state trooper smells alcohol on the priest's breath and then sees an empty wine bottle on the floor of the car. 
 
-Refrain!
+He says, 'Sir, have you been drinking?' 
+
+'Just water,' says the priest. 
+
+The trooper says, 'Then why do I smell wine?' 
+
+The priest looks at the bottle and says, 'Good Lord! He's done it again!'
 
