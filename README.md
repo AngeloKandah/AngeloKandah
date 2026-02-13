@@ -1,14 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-WATER TO WINE
+Moths
 
-An Irish priest is driving down to New York and gets stopped for speeding in Connecticut. The state trooper smells alcohol on the priest's breath and then sees an empty wine bottle on the floor of the car. 
+The lovers passionately embraced on her bed, their bodies fused together as they gyrated to their own tattoo. 
 
-He says, 'Sir, have you been drinking?' 
+The woman cocked her ear, 'Quick! My husband's coming through the front door! Hide in the bathroom!' she cried. The lover ran into the bathroom as she hid his clothes under the bed and as she turned back, her husband came through the bedroom door. 
 
-'Just water,' says the priest. 
+'What are you doing lying on the bed naked?' he asked. 'Darling, I heard you coming up the drive and got ready to receive you.' she replied with a knowing smile. 'Great,' he said, 'I'll just nip into the bathroom and I'll be with you in two shakes.' 
 
-The trooper says, 'Then why do I smell wine?' 
+Before she could stop him, he was into the bathroom where he found a man clapping his hands together in mid-air. 'Who the devil are you!' the husband demanded. 'I'm from the exterminator company. Your wife called me in to get rid of these pesky moths,' the lover replied. 
 
-The priest looks at the bottle and says, 'Good Lord! He's done it again!'
+'But..but you've got no clothes on?' stammered the husband. The lover looked down and jumped backwards in surprise and said, 'The little bastards!'
 
