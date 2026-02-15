@@ -1,8 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Yo Momma Head So Small
+Kanga
 
-Yo momma's head so small, she use a tea-bag as a pillow.
-
-Yo momma's head so small, she got her ear pierced and died.
+Knock Knock! 
+Who's there?  
+Kanga.  
+Kanga who?  
+No! Kangaroo!
 
