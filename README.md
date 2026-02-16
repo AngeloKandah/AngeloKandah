@@ -1,10 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Kanga
+You Should Try To Be More Polite
 
-Knock Knock! 
-Who's there?  
-Kanga.  
-Kanga who?  
-No! Kangaroo!
+One day, Bill and Tom went to a restaurant for dinner. As soon as the waiter took out two steaks, Bill quickly picked out the bigger steak for himself.
+
+Tom wasn't happy about that: 'When are you going to learn to be polite?'
+
+Bill: 'If you had the chance to pick first, which one would you pick?'
+
+Tom: 'The smaller piece, of course.'
+
+Bill: 'What are you whining about then? The smaller piece is what you want, right?'
 
