@@ -1,8 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Math Book
+Assorted Windows95 One-Liners 5
 
-What was the female math book that lived underwater wearing?
-
-An algae-bra
+If at first you don't succeed...work for Microsoft.
 
