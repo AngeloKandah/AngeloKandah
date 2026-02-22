@@ -1,6 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Yo Mama is Like a Hockey Player
+Hand
 
-Yo mama is like a hockey player. She doesn't change her pad for three periods.
+Q: Why did the hand cross the road?
+
+A: To get to the second-hand shop!
 
