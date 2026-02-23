@@ -1,8 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Hand
+Yo Momma
 
-Q: Why did the hand cross the road?
-
-A: To get to the second-hand shop!
+Yo momma is so stupid, she put a free sample on layaway.
 
