@@ -1,10 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Hair Restorer
+Playing Poker
 
-I have the typical observant wife. One evening after dinner, she handed me a bottle of that Rogaine hair restorer. 
+When the phone rang, she excused herself from the sofa. A few seconds later she rejoined her male companion.
 
-I told her while I was indeed starting to thin out some, I didn't really think I needed hair restorer yet. 
+'Who was it?' he asked. 
+'My husband,' she replied. 
+'I better get going,' he said. 'Where was he?'
 
-She said, 'Oh. It's not for you, it's for your secretary, she seems to be losing quite a bit of her hair on your jacket.'
+'Relax. He'll be late, he's playing poker with you.'
 
