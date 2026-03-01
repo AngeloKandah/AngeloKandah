@@ -1,14 +1,18 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Charity
+Advantages
 
-A lawyer was having a nice peacful time at home one day when the phone rang. He answered it and it was a man asking for donations towards a charity.
+A not necessarily well-prepared college student sat in his life science classroom, staring at a question on the final exam paper. The question directed 'Give four advantages of breast milk.' What to write?' He sighed, and began to scribble whatever came into his head, hoping for the best:
 
-The lawyer tries to tell the man politely that he wouldn't donate. But the man kept pushing and pushing. The man said over the phone, 'But Sir, I know for a fact you are a very wealthy lawyer, you make tons of money each year, and as I look over this information sheet I don't see any donations you have made to any charities in the last five years. Don't you think it's time you gave something back to the community that's treated you so well?'
+1. No need to boil.
 
-The lawyers now pissed replies, 'Look! I have a sick mother who requires an expensive surgery, my brother is handicapped and needs money to install ramps into his home so he can get back to a normal life, my sister needs money to get her dog an operation, and my father was injured on the job and now they're repossessing his house unless he comes up with $5000 by the end of the week.'
+2. Never goes sour.
 
-The man over the phone stammers, 'I-I-I'm sorry sir. I had no idea that many people needed money from you.'
+3. Available whenever necessary.
 
-The lawyers replies, 'Damn right! And if they can't get me to give them a dime, what makes you think you stand a chance??'
+So far so good - maybe. But the exam demanded a fourth answer. Again, what to write? Once more, he sighed. He frowned. He scowled, then sighed again. Suddenly, he brightened. He grabbed his pen, and triumphantly scribbled his definitive answer.
+
+4. Available in attractive containers of varying sizes.
+
+He received an A.
 
