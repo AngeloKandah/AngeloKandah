@@ -1,18 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Advantages
+Hannibal Lecter 'n' Britney
 
-A not necessarily well-prepared college student sat in his life science classroom, staring at a question on the final exam paper. The question directed 'Give four advantages of breast milk.' What to write?' He sighed, and began to scribble whatever came into his head, hoping for the best:
+What does Hannibal Lecter call Britney Spears? 
 
-1. No need to boil.
-
-2. Never goes sour.
-
-3. Available whenever necessary.
-
-So far so good - maybe. But the exam demanded a fourth answer. Again, what to write? Once more, he sighed. He frowned. He scowled, then sighed again. Suddenly, he brightened. He grabbed his pen, and triumphantly scribbled his definitive answer.
-
-4. Available in attractive containers of varying sizes.
-
-He received an A.
+Dinner at Hooters.
 
