@@ -1,12 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Powder your nose
+One Liners (2)
 
-A little boy and girl are playing in a sandbox. The little boy has to go to take a pee and he was told by his mother to always be polite and not to talk about private matters in public.
-At first he holds it in because he does not know what to say to the little girl to excuse himself. Then he remembers what his Mom had said at the restaurant to excuse herself from the table, so he turns to the little girl and says, 'Will you excuse me, I have to go powder my nose.' And, saying that, he leaps out of the sandbox and runs to the washroom. 
-When he returns, the little girl looks up at him and asks, 'Did you powder your nose?' 
+I've always wanted to have someone to hold, someone to love. After having met you, I've changed my mind. 
 
-'Yes,' said the little boy, stepping back into the sandbox. 
+I must admit, you brought Religion in my life. I never believed in Hell til I met you. 
 
-'Well, then,' says the little girl, 'you'd better close your purse because your lipstick is hanging out.'
+Looking back over the years that we've been together, I can't help but wonder: What the hell was I thinking? 
+
+As the days go by, I think of how lucky I am that you're not here to ruin it for me. 
+
+As you grow older, Mom, I think of all the gifts you've given me. Like the need for therapy...
 
