@@ -1,14 +1,20 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-One Liners (2)
+Sportsmen Quotes IV
 
-I've always wanted to have someone to hold, someone to love. After having met you, I've changed my mind. 
+1992. Pat Williams, Orlando Magic general manager, on his team's 7-27 record: 'We can't win at home. We can't win on the road. As general manager, I just can't figure out where else to play.'
 
-I must admit, you brought Religion in my life. I never believed in Hell til I met you. 
+1996. Lou Duva, veteran boxing trainer, on the spartan training regimen of heavyweight Andrew Golota: 'He's a guy who gets up at six o'clock in the morning regardless of what time it is.'
 
-Looking back over the years that we've been together, I can't help but wonder: What the hell was I thinking? 
+1981. Tommy Lasorda , Dodger manager, asked what terms Mexican-born pitching sensation Fernando Valenzuela might settle for in his upcoming contract negotiations: 'He wants Texas back.'
 
-As the days go by, I think of how lucky I am that you're not here to ruin it for me. 
+1976. Alex Hawkins, recalling his playing days against Dick Butkus: 'Whenever they gave him the game ball, he ate it.'
 
-As you grow older, Mom, I think of all the gifts you've given me. Like the need for therapy...
+1966. Darrell Royal, Texas football coach, asked if the abnormal number of Longhorn injuries this season resulted from poor physical conditioning: 'One player was lost because he broke his nose. How do you go about getting a nose in condition for football?'
+
+1981. Mike McCormack , coach of the hapless Baltimore Colts after the team's co-captain, offensive guard Robert Pratt, pulled a hamstring running onto the field for the coin toss against St. Louis: 'I'm going to send the injured reserve players out for the toss next time.'
+
+1966. Red Auerbach, the Boston Celtics' general manager, asked if he had any criticism of Bill Russell's coaching: 'He has the players too happy.'
+
+1971. Mike Lucci, Detroit Lion linebacker, on his three key interceptions against the Chicago Bears: 'Yeah, they gave me the game ball. If they hadn't given it to me, I would have taken it, anyway.'
 
