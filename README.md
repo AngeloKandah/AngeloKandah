@@ -1,20 +1,42 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Sportsmen Quotes IV
+19 Ways, Your Momma is So Fat
 
-1992. Pat Williams, Orlando Magic general manager, on his team's 7-27 record: 'We can't win at home. We can't win on the road. As general manager, I just can't figure out where else to play.'
+1#Yo momma's so fat, when she wears a red dress, the kids in the neighborhood yell, 'Hey, Kool-Aid!'
 
-1996. Lou Duva, veteran boxing trainer, on the spartan training regimen of heavyweight Andrew Golota: 'He's a guy who gets up at six o'clock in the morning regardless of what time it is.'
+2#Yo momma's so fat, when she sat on a rainbow, skittles popped out.
 
-1981. Tommy Lasorda , Dodger manager, asked what terms Mexican-born pitching sensation Fernando Valenzuela might settle for in his upcoming contract negotiations: 'He wants Texas back.'
+3#Yo momma's so fat, even God couldn't lift her spirits!
 
-1976. Alex Hawkins, recalling his playing days against Dick Butkus: 'Whenever they gave him the game ball, he ate it.'
+4#Yo momma's so fat, she has her own zip code!
 
-1966. Darrell Royal, Texas football coach, asked if the abnormal number of Longhorn injuries this season resulted from poor physical conditioning: 'One player was lost because he broke his nose. How do you go about getting a nose in condition for football?'
+5#Yo momma's so fat, it takes a train and two buses to get on her good side.
 
-1981. Mike McCormack , coach of the hapless Baltimore Colts after the team's co-captain, offensive guard Robert Pratt, pulled a hamstring running onto the field for the coin toss against St. Louis: 'I'm going to send the injured reserve players out for the toss next time.'
+6#Yo momma's so fat, when she stepped in the road and I tried to swerve around her, I ran out of gas!
 
-1966. Red Auerbach, the Boston Celtics' general manager, asked if he had any criticism of Bill Russell's coaching: 'He has the players too happy.'
+7#Yo momma's so fat, when she walked in front of the TV, I missed five minutes of the show!
 
-1971. Mike Lucci, Detroit Lion linebacker, on his three key interceptions against the Chicago Bears: 'Yeah, they gave me the game ball. If they hadn't given it to me, I would have taken it, anyway.'
+8#Yo momma's so fat, when she walked into a room, someone said, 'Woah! Was that a solar eclipse or did Free Willie just walk in?
+
+9#Yo momma's so fat, when she walked into a hotel and asked for a water bed, they put a blanket over the ocean!
+
+10#Yo momma's so fat, she rents shade!
+
+11#Yo momma's so fat, she invented the lowrider!
+
+12#Yo momma's so fat, she tripped over K-Mart, stumbled over Wal-Mart and landed on Target!
+
+13#Yo momma's so fat, when she puts on high heels in the morning, by the afternoon they're flats.
+
+14#Yo momma's so fat, her picture weighs ten pounds.
+
+15#Yo momma's so fat, she tripped over a rock and fell asleep trying to get up!
+
+16#Yo momma's so fat, when she stepped on a scale, it said, 'to be continued.'
+
+17#Yo momma's so fat, when she wears a yellow coat, people run after her yelling 'taxi!'
+
+18#Yo momma's so fat, she's on both sides of the family.
+
+19#Yo momma's so fat, when she got lost (amazingly) they had to use all 4 sides of the milk carton.
 
