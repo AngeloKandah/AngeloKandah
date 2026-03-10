@@ -1,6 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Sunshine Friendship
+Men VS Women
 
-How can you be sad when you are at the Sunshine Happiness Parade of Friendly Friends?
+When a relationship ends, a woman will cry and pour her heart out to her girlfriends, and she will write a poem titled 'All Men Are Idiots.' Then she will get on with her life. 
+
+A male has a little more trouble letting go. Six months after the breakup, at 3 am on a Sunday morning, he will call and say, 'I just wanted to let you know you ruined my life, and I'll never forgive you, and hate you, and you're a total floozy. But I want you to know that there's always a chance for us.' 
+
+This is known as the 'I Hate You, I Love You' drunken phone call and 99 percent of all men have made it at least once. There are community colleges that offer courses to help men get over this need
 
