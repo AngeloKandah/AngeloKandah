@@ -1,10 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Men VS Women
+I Still Have Nightmares
 
-When a relationship ends, a woman will cry and pour her heart out to her girlfriends, and she will write a poem titled 'All Men Are Idiots.' Then she will get on with her life. 
+One night, I was just walking around, and something really strange happened. Every single black person that night took one look at me and decided to punch me square in the face. Repeatedly.
 
-A male has a little more trouble letting go. Six months after the breakup, at 3 am on a Sunday morning, he will call and say, 'I just wanted to let you know you ruined my life, and I'll never forgive you, and hate you, and you're a total floozy. But I want you to know that there's always a chance for us.' 
+It hurt.
 
-This is known as the 'I Hate You, I Love You' drunken phone call and 99 percent of all men have made it at least once. There are community colleges that offer courses to help men get over this need
+And I'm not just talking about one or two, I'm saying every single black person beat the crap out of me that night.
+
+I don't know why. I didn't do anything. I didn't say anything. I didn't even look at anybody funny.
+
+But after that, I did stop dressing up as a ghost for Halloween.
 
