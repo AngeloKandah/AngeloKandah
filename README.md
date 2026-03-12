@@ -1,14 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-I Still Have Nightmares
+Lawyers and Dogs
 
-One night, I was just walking around, and something really strange happened. Every single black person that night took one look at me and decided to punch me square in the face. Repeatedly.
-
-It hurt.
-
-And I'm not just talking about one or two, I'm saying every single black person beat the crap out of me that night.
-
-I don't know why. I didn't do anything. I didn't say anything. I didn't even look at anybody funny.
-
-But after that, I did stop dressing up as a ghost for Halloween.
+Q: What's the difference between a dead dog in the road and a dead lawyer in the road?
+A: There are skid marks in front of the dog.
 
