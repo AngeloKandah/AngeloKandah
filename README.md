@@ -1,7 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Lawyers and Dogs
+Tootsie Roll
 
-Q: What's the difference between a dead dog in the road and a dead lawyer in the road?
-A: There are skid marks in front of the dog.
+You're so covered in dirt that if you wanted to eat a tootsie roll, you'd have to wear white gloves to keep from biting your finger!
 
