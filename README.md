@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Tootsie Roll
+I Love Being Married...
 
-You're so covered in dirt that if you wanted to eat a tootsie roll, you'd have to wear white gloves to keep from biting your finger!
+I love being married. It's so great to find that one special person you want to annoy for the rest of your life.
 
