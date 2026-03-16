@@ -1,12 +1,22 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Blind Date
+Things Dad Won't Say
 
-'How was your blind date?' a college student asked her room-mate. 
+9. Well, how 'bout that?...I'm lost! Looks like we'll have to stop and ask for directions. 
 
-'Terrible!' the room-mate answered. 'He showed up in his 1932 Rolls Royce.' 
+8. You know, Pumpkin, now that you're thirteen, you'll be ready for unchaperoned car dates. Won't that be fun? 
 
-'Wow! That's a very expensive car. What's so bad about that?' 
+7. Here's a credit card and the keys to my new car - GO CRAZY. 
 
-'He was the original owner!'
+6. What do you mean you wanna play football? Figure skating not good enough for you, son? 
+
+5. Your mother and I are going away for the weekend...you might want to consider throwing a party. 
+
+4. Well, I don't know what's wrong with your car. Probably one of those doo-hickey thingies - you know, that makes it run or something. Just have it towed to a mechanic and pay whatever he asks. 
+
+3. No son of mine is going to live under this roof without an earring, now quit your belly-aching, and let's go to the mall. 
+
+2. Whaddya wanna go and get a job for? I make plenty of money for you to spend. 
+
+1. Father's Day? Aaahh-don't worry about that - it's no big deal.
 
