@@ -1,12 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-When Johnny Comes Home Again
+The Bus
 
-Johnny comes home from school, and shouts, 'Mother!'
-
-Mother calls from upstairs, 'If you wish to speak to me, come upstairs so you don't have to shout.'
-
-When Johnny gets upstairs, she says, 'Now, what did you want to say to me?'
-
-'Just that I trod in some dog do, but it seems to have gone now!'
+Yo Momma's just like a bus. They're big, smelly, and you can ride it for a buck.
 
