@@ -1,25 +1,9 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Streetcorner Sales
+Knowing a little too much
 
-The kids filed back into class Monday morning. They were very excited. Their weekend assignment was to sell something, then give a talk on productive salesmanship. 
-
-Little Mary led off: 'I sold girl scout cookies and I made $30,' she said proudly, 'My sales approach was to appeal to the customer's civil spirit and I credit that approach for my obvious success.' 
-
-'Very good,' said the teacher. 
-
-Little Sally was next: 'I sold magazines,' she said, 'I made $45 and I explained to everyone that magazines would keep them abreast of current events.' 
-
-'Very good, Sally,' said the teacher. 
-
-Eventually, it was Little Johnny's turn. 
-
-Little Johnny walked to the front of the classroom and dumped a box full of cash on the teacher's desk.'$2,467,' he said. 
-
-'$2,467!' cried the teacher, 'What in the world were you selling?' 'Tooth brushes,' said Little Johnny. 
-'Tooth brushes,' echoed the teacher, 'How could you possibly sell enough tooth brushes to make that much money?' 
-'I found the busiest corner in town,' said Little Johnny, 'I set up a Dip JOKE Chip stand. I gave everybody who walked by a sample. 
-They all said the same thing. 'Hey, this tastes like shit! '
-
-Then I would say..............' It is shit. Wanna buy a toothbrush?'
+One day a little boy came over to his friends house and said, 'Ah shit! I got gunk on my shoe!'  As he was saying it, the friend's dad came over to the little boy and said, 'How dare you say that in front of my child!' The dad sent the little boy home and called his father, telling him to come over to his house and talk to him.
+The father came over and said, 'So what if my boy said that? it's not like your kids haven't overheard you say a curse word!'
+'Actually they haven't!' claimed the disgruntled father.
+As they argue, the disgruntled father's baby in the backround blurts out, 'Fuck you!'
 
