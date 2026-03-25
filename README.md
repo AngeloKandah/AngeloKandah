@@ -1,12 +1,13 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-One Banana, Two Banana
+A Book Never Written 3
 
-Two Polish guys were taking their first train trip to Warsaw on the train. A vendor came down the corridor selling bananas which they'd never seen before. Each bought one.
+A book never written:
 
-The first one eagerly peeled the banana and bit into it just as the train went into a tunnel. When the train emerged from the tunnel, he looked across to his friend and said, 'I wouldn't eat that if I were you.'
 
-'Why not?'
+Yellow Rivers
 
-'I took one bite and went blind for half a minute.'
+by
+
+L. O. Tsoftea
 
