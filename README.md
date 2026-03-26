@@ -1,13 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-A Book Never Written 3
+Golf is a Hard Game to Figure.
 
-A book never written:
-
-
-Yellow Rivers
-
-by
-
-L. O. Tsoftea
+Golf is a hard game to figure. One day you'll go out and slice it and shank it, hit it onto all the traps and miss every green. The next day you go out, and for no reason at all, you really stink.
 
