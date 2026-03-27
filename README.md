@@ -1,6 +1,16 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Golf is a Hard Game to Figure.
+Church Bulletin Bloopers
 
-Golf is a hard game to figure. One day you'll go out and slice it and shank it, hit it onto all the traps and miss every green. The next day you go out, and for no reason at all, you really stink.
+This is a compilation of actual Church Bulletins and Service bloopers:
+
+* Our next song is 'Angels We Have Heard Get High'.
+
+* Jean will be leading a weight-management series Wednesday nights. She's used the program herself and has been growing like crazy!
+
+* Eight new choir robes are currently needed, due to the addition of several new members and to the deterioration of some older ones.
+
+* The senior choir invites any member of the congregation who enjoys sinning to join the choir.
+
+* The church is glad to have with us today as our guest minister the Rev. Shirley Green, who has Mrs. Green with him. After the service we request that all remain in the sanctuary for the Hanging of the Greens.
 
