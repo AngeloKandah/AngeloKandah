@@ -1,16 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Church Bulletin Bloopers
+Your Coat is on Fire
 
-This is a compilation of actual Church Bulletins and Service bloopers:
-
-* Our next song is 'Angels We Have Heard Get High'.
-
-* Jean will be leading a weight-management series Wednesday nights. She's used the program herself and has been growing like crazy!
-
-* Eight new choir robes are currently needed, due to the addition of several new members and to the deterioration of some older ones.
-
-* The senior choir invites any member of the congregation who enjoys sinning to join the choir.
-
-* The church is glad to have with us today as our guest minister the Rev. Shirley Green, who has Mrs. Green with him. After the service we request that all remain in the sanctuary for the Hanging of the Greens.
+The master, to impress on his pupils the need of thinking before speaking, told them to count to fifty before saying anything important, and to one hundred if it was very important. The next day he was speaking, standing with his back to the fire, when he noticed several lips moving rapidly. Suddenly the whole class shouted: 'Ninety-eight, ninety-nine, a hundred. Your coat is on fire, sir!'
 
