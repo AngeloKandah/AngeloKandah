@@ -1,16 +1,45 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-To the Source
+Funny Thoughts 2
 
-The Indians asked their Chief in autumn, 'Chief, is this coming winter going to be mild or cold?'
+Here are more funny thoughts from www.crazythoughts.com.
 
-Not really knowing an answer, and knowing it was better to err on the side of caution, the chief replied, 'It is uncertain at this time, but we should begin to prepare just in case. Collect wood as if it is going to be cold, and I'll see what more I can learn.'
 
-Being a good leader, he then went to the phone and called the National Weather Service and asked, 'Is this winter going to be mild or cold?'
-
-The man on the phone responded, 'This winter was going to be quite cold indeed.'
-
-So the Chief went back to speed up his people to collect even more wood to be prepared. A week later, he again called the National Weather Service again, 'Is it going to be a cold winter?'
-
-'Yes,' the man replied, 'it's going to be an extremely cold winter. The Indians are collecting all the wood they can find!'
+Why do you get in trouble for blocking an exit when you're standing in the doorway? In case of an emergency, wouldn't you run out, too, therefore NOT blocking the exit? 
+Why is it when some products you have to turn it upside down to read the directions, and the directions say do not turn upside down?
+Why is a square meal served on round plates?
+Why is the 0 on a phone after 1 and not before 1?
+Which way does a compass point in space? 
+Why are people allowed to put naked statues outside but why can't we run outside naked?
+Why do all superheroes wear spandex?
+If mars had earthquakes would they be called marsquakes?
+Why did Mary own a little lamb?  
+If a missing person sees their picture on a milk carton that offers a reward, would they get the money?
+Why can't a baby cry while it's inside its mother?
+If the president were gay, would his husband be the first man?
+If you were a genie and a person asked you this wish, 'I wish you would not grant me this wish' what would you do?
+Why are Pringles curved?
+What happens if your snot freezes in your nose?
+Why aren't safety pins as safe as they say they are?
+If overalls are held up by the snaps at the top, then why do they have belt loops?
+Why is it that its good to score under par in golf but its bad to be 'under par' in any thing else?
+Is Jerry Garcia grateful to be dead?
+Why do people say, 'You can't have your cake and eat it too'? Why would someone get cake if they can't eat it?
+Can bald men get lice?? 
+How come popcorn isn't a vegetable? 
+Do movie producers still say lights, camera, and action when it is a dark scene?
+Did Noah have woodpeckers on the ark? If he did, where did he keep them?
+Why is Charlie short for Charles if they are both the same number of letters?
+Why is snow white and ice clear? Aren't they just different forms of water?
+Why do they put the names of football teams on baseball caps?
+If I had my legs amputated, would I have to change my height and weight on my driver's license?
+How come you pay an extra 25 cents to get something put on your hamburger but they don't take off the price if you get something taken off?
+Why do we wash behind our ears? Who really looks there?
+Why is it that if something says, 'do not eat' on the packaging it becomes extra tempting to eat?
+If you were under house arrest and you lived in a mobile home, wouldn't you be able to go anywhere you want?
+If our body temperature is normally 98.6 degrees, how come when it's 98 degrees outside, no one is comfortable?
+What would happen if you were to feed a pig some bacon?
+If scientists were ever going to figure out how to travel through time, wouldn't we now be seeing people from the future?
+Do pyromaniacs wear blazers?
+If you don't pay your exorcist, do you get repossessed?
 
