@@ -1,8 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Pirate Joke
+Class Reunion
 
-What is a pirate's favourite branch of the military? 
-
-The Arrrmy... no, the Navy, he's a pirate!
+I recently went to my  30th class reunion from nursery school.  I didn't want to go because I've put on maybe 90 or 100 pounds since then.
 
