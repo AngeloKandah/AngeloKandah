@@ -1,6 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Class Reunion
+Wait, What?
 
-I recently went to my  30th class reunion from nursery school.  I didn't want to go because I've put on maybe 90 or 100 pounds since then.
+How many ADHD kids does it take to change a lightbulb?
+It takes twenty se- hey, this is in the wrong category!
 
