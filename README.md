@@ -1,7 +1,22 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Wait, What?
+Bumper Stickers
 
-How many ADHD kids does it take to change a lightbulb?
-It takes twenty se- hey, this is in the wrong category!
+My Kid Got Your Honor Roll Student Pregnant. 
+
+Cleverly Disguised As A Responsible Adult 
+
+The Face Is Familiar, But I Can't Quite Remember My Name 
+
+I Do Whatever My Rice Krispies Tell Me To 
+
+Fight Crime: Shoot Back! 
+
+Caution -- Driver Legally Blonde! 
+
+If You Drink Don't Park. Accidents Cause People. 
+
+If You're Not A Hemorrhoid, Get Off My Ass. 
+
+You're Just Jealous Because The Voices Are Talking To Me
 
