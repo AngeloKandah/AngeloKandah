@@ -1,6 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Chess Player
+Hide-and-Seek
 
-Never have lunch with a chess player - I did once; there was a checkered tablecloth, and it took him half an hour to pass me the salt.
+Why is it hard for dalmatians to play hide-and-seek?
+
+Because they're always spotted!
 
