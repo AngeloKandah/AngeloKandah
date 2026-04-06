@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Hide-and-Seek
+3 Legged Dog
 
-Why is it hard for dalmatians to play hide-and-seek?
+One day a three legged dog walked into a bar.
 
-Because they're always spotted!
+He said, 'I'm looking for the guy that shot my paw.'
 
