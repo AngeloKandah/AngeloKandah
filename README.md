@@ -1,11 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Drummers
+Amore
 
-What do you call a drummer without a girlfriend?
-
-Homeless!
-
-
-P.S. This works for just about any instrument player.
+When you're swimming in the creek, and an eel bites your cheek, that's a moray!
 
