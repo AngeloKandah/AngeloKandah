@@ -1,6 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Frogs
+Elephant in the Bathtub
 
-A noted biologist, who had been studying little green frogs in a swamp, was stumped. The frog population, despite efforts at predator control, was declining at an alarming rate. A chemist at a nearby college came up with a solution: The frogs, due to a chemical change in the swamp water, simply couldn't stay coupled long enough to reproduce successfully. The chemist then brewed up a new adhesive to assist the frogs' togetherness, which included one part sodium. It seems the little green frogs needed some 'monosodium glue to mate'.
+Q: How can you tell that an elephant is in the bathtub with you? 
+A: By the smell of peanuts on its breath.
 
