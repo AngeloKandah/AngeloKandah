@@ -1,7 +1,13 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Elephant in the Bathtub
+Daddy's Gonna Eat Your Fingers
 
-Q: How can you tell that an elephant is in the bathtub with you? 
-A: By the smell of peanuts on its breath.
+As I was packing for my business trip, my 3-year old daughter was having a wonderful time playing on the bed. At one point, she said, 'Daddy, look at this,' and stuck out two of her fingers. 
+
+Trying to keep her entertained, I reached out and stuck her tiny fingers in my mouth and said, 'Daddy's gonna eat your fingers!' pretending to eat them before I rushed out of the room again. 
+
+When I returned, my daughter was standing on the bed staring at her fingers with a devastated look on her face. 
+
+I said, 'What's wrong, honey?' 
+She replied, 'What happened to my booger?'
 
