@@ -1,13 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Daddy's Gonna Eat Your Fingers
+History Class
 
-As I was packing for my business trip, my 3-year old daughter was having a wonderful time playing on the bed. At one point, she said, 'Daddy, look at this,' and stuck out two of her fingers. 
-
-Trying to keep her entertained, I reached out and stuck her tiny fingers in my mouth and said, 'Daddy's gonna eat your fingers!' pretending to eat them before I rushed out of the room again. 
-
-When I returned, my daughter was standing on the bed staring at her fingers with a devastated look on her face. 
-
-I said, 'What's wrong, honey?' 
-She replied, 'What happened to my booger?'
+Today in history class the topic was the Incas. Hoping to see if the students had done the reading, the teacher calls on random students and asks them questions. 
+'Where could the Incas be found?' The teacher's first question. 'Jonie?' foolishly she called on the blonde.
+Not having actually done the homework, and only halfway hearing the question, she guesses: 'In the pen?'
 
