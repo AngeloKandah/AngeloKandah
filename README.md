@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-History Class
+Things You Don't Like
 
-Today in history class the topic was the Incas. Hoping to see if the students had done the reading, the teacher calls on random students and asks them questions. 
-'Where could the Incas be found?' The teacher's first question. 'Jonie?' foolishly she called on the blonde.
-Not having actually done the homework, and only halfway hearing the question, she guesses: 'In the pen?'
+They say one way to build character is to do things you don't want to do.
+
+Every day I do two things I don't want to do: I get out of bed in the morning and go to bed at night!
 
