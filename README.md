@@ -1,6 +1,9 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Assorted Windows95 One-Liners 8
+Peer Pressure?
 
-Windows95...the best $159 Solitaire game you can buy.
+Reporters interviewing a 104 year-old woman: 'And what do you think is the best thing about being 104?' the reporter asked.
+
+
+She simply replied, 'No peer pressure.'
 
