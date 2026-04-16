@@ -1,9 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Peer Pressure?
+I Saw a Woman...
 
-Reporters interviewing a 104 year-old woman: 'And what do you think is the best thing about being 104?' the reporter asked.
+I saw a woman wearing a sweatshirt with 'Guess' on it. 
 
+So I said 'Implants?' 
 
-She simply replied, 'No peer pressure.'
+She hit me.
 
