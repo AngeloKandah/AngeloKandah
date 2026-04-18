@@ -1,19 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Einstein, Picasso and Bush
+What's the Difference...
 
-Albert Einstein dies and goes to heaven. At the pearly gates, St. Peter says, 'You look like Albert Einstein, but you have no idea the lengths people will go to in order to sneak into heaven. Can you prove who you really are?'
-Einstein asks, 'Could I have a blackboard and some chalk, please?'
-St. Peter snaps his fingers and a blackboard and some chalk instantly appear. Einstein describes, with arcane mathematics and symbols, his theory of relativity. St. Peter is very impressed.
-'You really are Albert Einstein!' he says. 'Welcome to heaven!'
+What's the difference between a toad and a horny toad?
 
-When Pablo Picasso arrives, once again St. Peter asks for credentials.
-Picasso says, 'May I use that blackboard and chalk?'
-St. Peter says, 'Go ahead.'
-Picasso erases Einstein's equations and quickly sketches a truly stunning mural. St. Peter claps. 'Surely, you are the great artist you claim to be!' he says. 'Come on in!'
-
-St. Peter looks up and sees George W. Bush.
-He scratches his head and says, 'Einstein and Picasso both proved their identities, can you prove yours?'
-George W. says, 'Who are Einstein and Picasso?'
-St. Peter says, 'Come on in, George.'
+One says 'Ribbit ribbit' and the other says 'Rubbit rubbit'.
 
