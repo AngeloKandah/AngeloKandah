@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Yo Momma
+Museum Curator
 
-Who is Yo Momma? 
+The assistant curator of the musuem came to the head curator with a couple of problems.  'Sir, the mummy is damp and getting mouldy.  And the white mouse in the maze exhibit has developed dry skin.'
 
-Yo Momma doesn't know.
+The head curator thought for a minute, then advised, 'Put your mummy where your mouse is.'
 
