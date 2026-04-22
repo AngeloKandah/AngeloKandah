@@ -1,20 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Hotel
+Health Club
 
-A man stops to stay at hotel for the night, and when he goes to check in, the clerk tells him, 'There is only one room left, and there are three holes in the wall. Whatever you do, don't stick your dick into any of the holes.' 
+Some members of a health club were having their first meeting. The director of the group said, 'Now, I'd like each of you to give the facts of your daily routine.' 
 
-When the man gets inside the room, his curiosity gets the best of him, and he sticks his dick in the first hole. Immediately a hunter shoots it off with a rifle. The pain is so unbearable, the man jumps out the second story window and plummets to his death.
+Several people spoke, admitting their excesses, and then one obviously overweight member said, 'I eat moderately, I drink moderately, and I exercise frequently.' 
 
-The next night, another man comes to stay at the same hotel. The clerk tells him, 'There is only one room left, and there are three holes in the wall. Whatever you do, don't stick your dick into any of the holes.' 
+'Hmm?' said the manager. 'And are you sure there is nothing you over-indulge in?' 
 
-When the second man gets in the room, he sticks his dick in the second hole, and a butcher chops it off with a butcher's knife. The pain is so unbearable he jumps out the window to his death.
-
-The third night, a young college student comes to stay the night. As he checks in, the clerk tells him, 'There is only one room left, and there are three holes in the wall. Whatever you do, don't stick your dick into any of the holes.' 
-
-When the college student gets inside the room, he sticks his dick inside the third hole. A masseuse begins massaging his dick all night. 
-
-When he goes to check out in the morning, he tells the clerk, 'That masseuse in the third hole is incredible!'
-
-The clerk responds with, 'That's no masseuse, that's my daughter.'
+'Well,' said the man, 'I lie extensively.'
 
