@@ -1,12 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Health Club
+Good, Bad and Ugly
 
-Some members of a health club were having their first meeting. The director of the group said, 'Now, I'd like each of you to give the facts of your daily routine.' 
-
-Several people spoke, admitting their excesses, and then one obviously overweight member said, 'I eat moderately, I drink moderately, and I exercise frequently.' 
-
-'Hmm?' said the manager. 'And are you sure there is nothing you over-indulge in?' 
-
-'Well,' said the man, 'I lie extensively.'
+Good: You JOKE Your wife decide not to have kids. 
+Bad: Your wife can't find the birth control pills 
+Ugly: You daughter borrowed them.
 
