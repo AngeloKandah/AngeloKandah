@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Good, Bad and Ugly
+What's the Difference...
 
-Good: You JOKE Your wife decide not to have kids. 
-Bad: Your wife can't find the birth control pills 
-Ugly: You daughter borrowed them.
+What's the difference between a teacher and a train?
+
+A train goes 'chew, chew, chew,' and a teacher says, 'Spit that gum out!'
 
