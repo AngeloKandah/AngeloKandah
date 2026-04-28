@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Kind of Makes You Think 22
+Seagulls
 
-If at first you don't succeed, shouldn't you try doing it like your wife/girlfriend told you to do it?
+Why do seagulls fly over the sea? Because if they flew over the bay, they'd be called bagels!
 
