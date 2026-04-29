@@ -1,6 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Seagulls
+Fishy
 
-Why do seagulls fly over the sea? Because if they flew over the bay, they'd be called bagels!
+A man and a woman had been married for ten years and decided to try and have kids. They had not been using birth control for the entire time they had been married, so they thought they may have a problem conceiving.
+
+The woman, who was hard of hearing, decided to go to the gynecologist and see if the problem was with her. The doctor examined her and came in to give her the conclusions.
+
+He said, 'I'm sorry, but the problem is with you. You have insufficient passion, and if you ever have a baby, it will be a miracle.'
+
+The woman was very upset and went home crying. Her husband got home and asked her what was wrong.
+
+She said, 'The doctor told me I've got a fish up my passage and if I ever have a baby it will be a mackerel.'
 
