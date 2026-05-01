@@ -1,7 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Snow White
+Soooooooooooooooo FAT
 
-Q. Why would Snow White be a good judge?
-A.Because she's the fairest in the land.
+Yo Momma so fat, when she fell on the ground, I tried not to laugh, but the ground was cracking up!
 
