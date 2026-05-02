@@ -1,6 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Soooooooooooooooo FAT
+Kiss His Ring
 
-Yo Momma so fat, when she fell on the ground, I tried not to laugh, but the ground was cracking up!
+The difference between the Pope and your boss.... 
+
+The Pope only expects you to kiss his ring.
 
