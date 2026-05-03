@@ -1,8 +1,21 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Kiss His Ring
+Why Did the Turtle.....
 
-The difference between the Pope and your boss.... 
+Q: Why did the turtle cross the road?
 
-The Pope only expects you to kiss his ring.
+
+
+
+
+
+
+
+
+
+
+
+
+
+A:To get to the shell gas station!
 
