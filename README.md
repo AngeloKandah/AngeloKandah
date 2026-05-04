@@ -1,21 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Why Did the Turtle.....
+Sorry Officer
 
-Q: Why did the turtle cross the road?
+What do you call an Italian Cop?
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-A:To get to the shell gas station!
+Guinea Pig
 
