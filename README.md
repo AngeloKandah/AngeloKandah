@@ -1,6 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Half Price Pants
+Do You Believe in Me?
 
-Cathy was looking through the window of a clothes store when she spotted a pair of short-shorts.  'Wow, these pants are half off!' she told her uncle.  Her uncle said 'They should be, they are only a half pair of pants.'
+With so much turmoil in the world, God decided to pay a visit to earth to check things out. He strolled into a bar and approached the first man he saw. 'If you believe in me enough to give me $50,' he said, 'I will grant you eternal life.' 
+
+'Sorry, I'm an atheist,' the fellow replied, 'and have never believed in God.'
+
+God walked up to another man and made the same offer. 'Well, I'm an agnostic and not really sure if I believe in you or not,' the guy said, 'but here's 50 bucks, just in case.' 
+
+As the Lord turned away, a third man ran up to him. 'I'm Pat Robertson and don't really care if you're God or not,' he said excitedly. 'Just teach me the trick you did with the agnostic and I'll give you $100.'
 
