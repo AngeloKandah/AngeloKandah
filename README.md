@@ -1,20 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Blonde Job Interview
+Accept
 
-A blonde goes for a job interview in an office. The interviewer decides to start with the basics. 
+'If you do settle in the South and bear children, don't think we will accept them as Southerners.
 
-'So, Miss, can you tell me your age, please?' The blonde counts carefully on her fingers for about 30 seconds before replying, 'Ehhhh ... 22!' 
-
-The interviewer tries another straightforward one to break the ice. 'And can you tell me your height, please?' 
-
-The young lady stands up and produces a measuring tape from her handbag. She then traps one end under her foot and extends the tape to the top of her head. She checks the measurement and announces, 'Five foot two.' 
-
-This isn't looking good, so the interviewer goes for the real basics. 'And ehh, just to confirm for our records, your name, please?' 
-
-The blonde bobs her head from side to side for about twenty seconds, mouthing something silently to herself, before replying, 'Mandy!' 
-
-The interviewer is completely baffled at this stage, so he asks, 'Just out of curiosity, Miss, I can understand your counting on your fingers to work out your age, and the measuring tape for your height is obvious, but what were you doing when I asked you your name?' 
-
-'Oh that!' replies the Blonde, 'That's just me running through, 'Happy birthday to you, happy birthday to you'.'
+After all, if the cat had kittens in the oven, we wouldn't call 'em biscuits.'
 
