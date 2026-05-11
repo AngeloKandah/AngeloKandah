@@ -1,8 +1,16 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Accept
+Drinks
 
-'If you do settle in the South and bear children, don't think we will accept them as Southerners.
+A blonde, a brunette, and a redhead all go to a bar.  
 
-After all, if the cat had kittens in the oven, we wouldn't call 'em biscuits.'
+The redhead walks up to the bartender and says,'I'll have a BL.' So the bartender gives her a Bud Light.
+
+The brunette walks up next and says,'I'll have an ML.' So the bartender gives her a Miller Light.
+
+The blonde is catchingon so she goes up to the bartender and says,'I'll have a 15.' 
+
+The bartender thinks about it, looks around, and says,'Ok, you stumped me. What's a 15?'
+
+The blonde goes,'Duh! 7 and 7.'
 
