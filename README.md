@@ -1,16 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Drinks
+The First pancake
 
-A blonde, a brunette, and a redhead all go to a bar.  
-
-The redhead walks up to the bartender and says,'I'll have a BL.' So the bartender gives her a Bud Light.
-
-The brunette walks up next and says,'I'll have an ML.' So the bartender gives her a Miller Light.
-
-The blonde is catchingon so she goes up to the bartender and says,'I'll have a 15.' 
-
-The bartender thinks about it, looks around, and says,'Ok, you stumped me. What's a 15?'
-
-The blonde goes,'Duh! 7 and 7.'
+A mother was preparing pancakes for her sons Kevin, 5, and Ryan, 3. The boys began to argue over who would get the first pancake. Their mother saw the opportunity for a moral lesson; 'If Jesus were sitting here, He would say 'Let my brother have the first pancake, I can wait.'' Kevin turned to his younger brother and said, 'Ryan, you be Jesus!'
 
