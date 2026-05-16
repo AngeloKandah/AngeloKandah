@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Friend
+Politics
 
-I'm so bad my imaginary friend left me.
+Politics comes from the root 'poli-', which means many, and '-tics', which means, blood-sucking creatures.
 
