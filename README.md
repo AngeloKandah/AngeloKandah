@@ -1,12 +1,30 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Multiply
+Dividing Nuts
 
-The Flood is over and the ark has landed. Noah lets all the animals out and says, 'Go forth and multiply.'
+Two Boy Scouts went on a nature hike in the hills picking hickory nuts. Along the way, they filled their small pails and then started to fill their pockets and shirts. 
 
-A few months later, Noah decides to take a stroll and see how the animals are doing. Everywhere he looks he finds baby animals. Everyone is doing fine except for one pair of little snakes. 'What's the problem?' says Noah. 'Cut down some trees and let us live there', say the snakes.
+When they could hold no more nuts, they started down the country road until they came upon a cemetery. The boys decided that it would be a good place to stop and rest to divide the nuts. 
 
-Noah follows their advice. Several more weeks pass. Noah checks on the snakes again. Lots of little snakes, everybody is happy. Noah asks, 'Want to tell me how the trees helped?'
+The two boys sat in the shade of a large oak tree and unloaded their pockets and buckets by dumping all of the nuts into a large pile. In the process, two of the nuts rolled away and settled near the road. The boys then proceeded to divide the nuts. 
 
-'Certainly', say the snakes. 'We're adders, so we need logs to multiply.'
+'One for you. One for me. One for you. One for me...' 
+
+As they were doing this, another boy passed by and happened to hear them. He looked into the cemetery, but could not see the boys, because they were obscured by the tree. He hesitated a moment and then ran back to town. 
+
+'Father! Father!' he yelled as he entered his house. 'The cemetery. Come quick!' 
+
+'What's the matter?' his father asked. 
+
+'No time to explain,' the boy frantically panted. 'Follow me!' 
+
+The boy and his father ran up the country road and until they reached the cemetery. They stopped at the side of the road and all fell silent for a few moments. Then the father asked his son what was wrong. 
+
+'Do you hear that?' he whispered. Both people listened intently and heard the Scouts. 
+
+'One for me. One for you. One for me. One for you...' 
+
+The boy then blurted out, 'The devil and the Lord are dividing the souls!' 
+
+The father was skeptical but silent... until a few moments later, as the Scouts completed dividing the nuts and one Scout said to the other, 'Now, as soon as we get those two nuts down by the road, we'll have them all.'
 
