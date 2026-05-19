@@ -1,30 +1,19 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Dividing Nuts
+Ugly Duckling
 
-Two Boy Scouts went on a nature hike in the hills picking hickory nuts. Along the way, they filled their small pails and then started to fill their pockets and shirts. 
+Once upon a time there was a mother duck and a father duck who had seven baby ducklings.  Six of them were regular-looking ducklings.  The seventh was a REALLY ugly duckling.
 
-When they could hold no more nuts, they started down the country road until they came upon a cemetery. The boys decided that it would be a good place to stop and rest to divide the nuts. 
+Everyone used to say, 'What a nice-looking bunch of ducklings--- all except that one.  Boy, he's really ugly.'  The really ugly duckling heard these people, but he didn't care.  He knew that ONE day, he would probably grow up to be a swan, and be bigger and look better than anything in the pond.
+*
+*
+*
+*
+*
+*
+*
+*
+WELL, AS IT TURNED OUT, HE WAS JUST A REALLY UGLY DUCKLING. AND HE GREW UP TO BE JUST A REALLY UGLY DUCK.
 
-The two boys sat in the shade of a large oak tree and unloaded their pockets and buckets by dumping all of the nuts into a large pile. In the process, two of the nuts rolled away and settled near the road. The boys then proceeded to divide the nuts. 
-
-'One for you. One for me. One for you. One for me...' 
-
-As they were doing this, another boy passed by and happened to hear them. He looked into the cemetery, but could not see the boys, because they were obscured by the tree. He hesitated a moment and then ran back to town. 
-
-'Father! Father!' he yelled as he entered his house. 'The cemetery. Come quick!' 
-
-'What's the matter?' his father asked. 
-
-'No time to explain,' the boy frantically panted. 'Follow me!' 
-
-The boy and his father ran up the country road and until they reached the cemetery. They stopped at the side of the road and all fell silent for a few moments. Then the father asked his son what was wrong. 
-
-'Do you hear that?' he whispered. Both people listened intently and heard the Scouts. 
-
-'One for me. One for you. One for me. One for you...' 
-
-The boy then blurted out, 'The devil and the Lord are dividing the souls!' 
-
-The father was skeptical but silent... until a few moments later, as the Scouts completed dividing the nuts and one Scout said to the other, 'Now, as soon as we get those two nuts down by the road, we'll have them all.'
+THE END.
 
