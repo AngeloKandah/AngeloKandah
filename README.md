@@ -1,19 +1,16 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Ugly Duckling
+What Women Can TITLE Cannot Wear To A Pool
 
-Once upon a time there was a mother duck and a father duck who had seven baby ducklings.  Six of them were regular-looking ducklings.  The seventh was a REALLY ugly duckling.
+A few rules for what women can and cannot wear at a private pool.
 
-Everyone used to say, 'What a nice-looking bunch of ducklings--- all except that one.  Boy, he's really ugly.'  The really ugly duckling heard these people, but he didn't care.  He knew that ONE day, he would probably grow up to be a swan, and be bigger and look better than anything in the pond.
-*
-*
-*
-*
-*
-*
-*
-*
-WELL, AS IT TURNED OUT, HE WAS JUST A REALLY UGLY DUCKLING. AND HE GREW UP TO BE JUST A REALLY UGLY DUCK.
+1) Thongs are encouraged... however only if certain conditions are met.
 
-THE END.
+1A) There must be a direct correlation to the amount of total square inches of skin, to the total amount of square inches of bathing suit. In other words, if you are any larger than a mini van, a string bikini should be frowned upon.
+
+1B) Thongs or ass floss as they have been come to be known in pool and beach circles, should be worn as long as there is not more cellulite on your buttocks than in one of Mel Gibson's Epic type movies.
+
+2) Women with near perfect figures, cannot wear one piece bathing suits... plain and simple. Damn, I know it's a sexist world, but it's the world that we live in.
+
+3) Curlers are strictly verboten.
 
