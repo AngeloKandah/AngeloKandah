@@ -1,16 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-What Women Can TITLE Cannot Wear To A Pool
+Locked Car
 
-A few rules for what women can and cannot wear at a private pool.
+A blonde woman is driving down the road. She notices that she's low on gas, so she stops at a gas station. While she's pumping her gas, she notices that she locked the keys in the car. So when she goes inside to pay, she asks the attendant for a hanger so that she can attempt to open the door herself. 
 
-1) Thongs are encouraged... however only if certain conditions are met.
+She returns outside and begins to jimmy the lock. Ten minutes later, the attendant comes out to see how the blonde is faring. 
 
-1A) There must be a direct correlation to the amount of total square inches of skin, to the total amount of square inches of bathing suit. In other words, if you are any larger than a mini van, a string bikini should be frowned upon.
-
-1B) Thongs or ass floss as they have been come to be known in pool and beach circles, should be worn as long as there is not more cellulite on your buttocks than in one of Mel Gibson's Epic type movies.
-
-2) Women with near perfect figures, cannot wear one piece bathing suits... plain and simple. Damn, I know it's a sexist world, but it's the world that we live in.
-
-3) Curlers are strictly verboten.
+Outside the car, the blonde is moving the hanger around and around while the blonde inside the car is saying, 'A little more to the left...a little more to the right!...'
 
