@@ -1,10 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Locked Car
+Some More One Liners
 
-A blonde woman is driving down the road. She notices that she's low on gas, so she stops at a gas station. While she's pumping her gas, she notices that she locked the keys in the car. So when she goes inside to pay, she asks the attendant for a hanger so that she can attempt to open the door herself. 
+I bought a book called 'How to Hug,' and when I got it home, found it was volume 7 of an encyclopedia.
 
-She returns outside and begins to jimmy the lock. Ten minutes later, the attendant comes out to see how the blonde is faring. 
-
-Outside the car, the blonde is moving the hanger around and around while the blonde inside the car is saying, 'A little more to the left...a little more to the right!...'
+I phoned the gym, and asked if they could teach me to do the splits. The girl asked if I was flexible, and I said I couldn't do Tuesdays.
 
