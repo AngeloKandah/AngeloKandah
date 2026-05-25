@@ -1,6 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Halloween
+Queer Jew
 
-Your momma is so ugly, the government moved Halloween to her birthday.
+How do you know you have a queer Jew? 
+He likes money more than girls.
 
