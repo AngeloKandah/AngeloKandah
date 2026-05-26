@@ -1,7 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Queer Jew
+Hey You!!
 
-How do you know you have a queer Jew? 
-He likes money more than girls.
+I don't need to write a joke!  Whenever I see your face I start to laugh anyway!!
 
