@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Another Dinosaur
+A Man Went to the Doctor...
 
-What do you call a one-eyed dinosaur?
+A man went to the doctor complaining of insomnia. The doctor gave him a thorough examination, found absolutely nothing physically wrong with him, and then told him, 'Listen, if you ever expect to cure your insomnia, you just have to stop taking your trouble to bed with you.'
 
-Dyouthinkhesaurus
+'I know,' said the man, 'but I can't. My wife refuses to sleep alone...'
 
