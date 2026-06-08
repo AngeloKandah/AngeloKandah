@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Pie Eating Contest
+Yo Mommas So Stupid
 
-Yo Momma so dumb, she was killed in a pie eating contest when the cow sat on her!
+Yo mommas so stupid she asked how much she had to pay to get a free car-wash.
 
