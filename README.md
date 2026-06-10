@@ -1,44 +1,28 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Argument
+Can't Be Right EVERY Time!
 
-HE: I'm a photographer I've been looking for a face like yours!
-SHE: I'm a plastic surgeon. I've been looking for a face like yours!
+'This 'telephone' has too many shortcomings to be seriously considered as a means of communication. The device is inherently of no value to us.' - Western Union internal memo, 1876.
 
-HE: May I have the pleasure of this dance?
-SHE: No, I'd like to have some pleasure too!
+'The wireless music box has no imaginable commercial value. Who would pay for a message sent to nobody in particular?' - David Sarnoff's associates in response to his urgings for investment in the radio in the 1920s. 
 
-HE: How did you get to be so beautiful?
-SHE: I must have been given your share!
+'The concept is interesting and well-formed, but in order to earn better than a 'C,' the idea must be feasible.' - A Yale University management professor in response to Fred Smith's paper proposing reliable overnight delivery service. (Smith went on to found Federal Express Corp.) 
 
-HE: Will you come out with me this Saturday?
-SHE: Sorry! I'm having a headache this weekend!
+'Who the hell wants to hear actors talk?' - H.M. Warner, Warner Brothers, 1927. 
 
-HE: Go on, don't be shy. Ask me out!
-SHE: Okay, get out!
+'I'm just glad it'll be Clark Gable who's falling on his face and not Gary Cooper.' - Gary Cooper on his decision not to take the leading role in 'Gone With The Wind.' 
 
-HE: I think I could make you very happy
-SHE: Why? Are you leaving?
+'We don't like their sound, and guitar music is on the way out.' - Decca Recording Co. rejecting the Beatles, 1962. 
 
-HE: What would you say if I asked u to marry me?
-SHE: Nothing. I can't talk and laugh at the same time!
+'Heavier-than-air flying machines are impossible.' - Lord Kelvin, president, Royal Society, 1895. 
 
-HE: Can I have your name?
-SHE: Why, don't you already have one?
+'If I had thought about it, I wouldn't have done the experiment. The literature was full of examples that said you can't do this.' - Spencer Silver on the work that led to the unique adhesives for 3-M 'Post-It' Notepads. 
 
-HE: Shall we go and see a film?
-SHE: I've already seen it!
+'Professor Goddard does not know the relation between action and reaction and the need to have something better than a vacuum against which to react. He seems to lack the basic knowledge ladled out daily in high schools.' - 1921 New York Times editorial about Robert Goddard's revolutionary rocket work. 
 
-HE: Do you think it was fate that brought us together?
-SHE: Nah, it was plain bad luck!
+'Stocks have reached what looks like a permanently high plateau.' - Irving Fisher, Professor of Economics, Yale University, 1929. 
 
-HE: Where have you been all my life?
-SHE: Hiding from you.
+'Airplanes are interesting toys but of no military value.' - Marechal Ferdinand Foch, professor of Strategy, Ecole Superieure de Guerre. 
 
-HE: Haven't I seen you some place before?
-SHE: Yes, that's why I don't go there any more.
-
-
-HE: Is this seat empty?
-SHE: Yes, and this one will be if you sit down
+'Louis Pasteur's theory of germs is ridiculous fiction'. - Pierre Pachet, Professor of Physiology at Toulouse, 1872.
 
