@@ -1,9 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-A Rhyme
+$50
 
-Roses are red,
-Roses are yellow;
-Grandfather's teeth
-Are lost in the Jello.
+Someone dropped $50. Who do you think will pick it up?
+
+A.) An honest politician
+B.) A five year old child
+C.) Santa Claus
+
+B.) A 5 year old child, all the others aren't real.
 
