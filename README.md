@@ -1,12 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-$50
+You are a Redneck If... #4
 
-Someone dropped $50. Who do you think will pick it up?
+You are a redneck if:
 
-A.) An honest politician
-B.) A five year old child
-C.) Santa Claus
-
-B.) A 5 year old child, all the others aren't real.
+Directions to your house include ''Turn off the paved road...''
 
