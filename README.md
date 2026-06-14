@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-You are a Redneck If... #4
+Three Bags Full
 
-You are a redneck if:
+I don't want any yes-men around me. I want everybody to tell me the truth even if it costs them their jobs.
 
-Directions to your house include ''Turn off the paved road...''
+Sam Goldwyn.
 
