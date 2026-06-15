@@ -1,8 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Three Bags Full
+Politics
 
-I don't want any yes-men around me. I want everybody to tell me the truth even if it costs them their jobs.
-
-Sam Goldwyn.
+Politics comes from the root 'poli-', which means many, and '-tics', which means, blood-sucking creatures.
 
