@@ -1,6 +1,18 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Politics
+Genie-size It
 
-Politics comes from the root 'poli-', which means many, and '-tics', which means, blood-sucking creatures.
+A golfer, encountering a genie, was granted one wish. The man thought a while and said, 'Well, I've always been embarrassed by being rather small, if you know what I mean; could you make me larger?'
+
+'Done,' said the genie and disappeared.
+
+Continuing his game, the man noticed an immediate change in his 'size.' Within several holes, it was down to his knee, and by the eighteenth, it had crept into his sock. After holing his final putt, the man hurriedly returned to where he'd met the genie.
+
+'Problem?' inquired the genie.
+
+'Yes,' the man responded, 'Do you think I could trouble you for one more wish?'
+
+'And what might that be?' asked the genie.
+
+'Could you make my legs longer?'
 
