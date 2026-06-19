@@ -1,24 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-These are real books you can buy
+The Lemon
 
-'The Romance of Leprosy',  E Mackerchar 1949
+The local bar was so sure that its bartender was the strongest man around that they offered a standing $1000 bet. The bartender would squeeze a lemon until all the juice ran into a glass, and hand the lemon to a patron. Anyone who could squeeze one more drop of juice out would win the money. Many people had tried over time (weight-lifters, longshoremen, etc.) but nobody could do it.
 
-'Why bring that up? a guide to seasickness', J F Montague 1936
+One day, this scrawny little man came into the bar, wearing thick glasses and a polyester suit, and said in a tiny squeaky voice, 'I'd like to try the bet.' After the laughter had died down, the bartender said OK, grabbed a lemon, and squeezed away, then he handed the wrinkled remains of the rind to the little man.
 
-'Penetrating Wagner's Ring', John L Di Gaetanao 1978
-
-'Constipation JOKE our Civilization', J C Thomson 1943
-
-'A pictorial book of tongue coating', Anon 1981
-
-'A Government committee of Enquiry on the Light metal artificial Leg', Captain Henery Hulme JOKE Chisholm Baird 1923
-
-'Daddy was an undertaker', McDill, McGown JOKE Gassman 1952
-
-'Amputation Stumps: Their care JOKE after-treatment', Sir Godfrey Martin Huggins 1918
-
-'A Study of Masturbation JOKE its reputed Sequelae', J F W Meagher 1924
-
-'Sex after Death', B J Ferrell JOKE D E Frey 1983
+But the crowd's laughter turned to total silence as the man clenched his fist around the lemon and six drops fell into the glass. As the crowd cheered, the bartender paid the $1000, and asked the little man, 'What do you do for a living? Are you a lumberjack, a weight-lifter, or what?' The man replied, 'I work for the IRS.'
 
