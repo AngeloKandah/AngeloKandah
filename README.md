@@ -1,10 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Lemon
+Guilty
 
-The local bar was so sure that its bartender was the strongest man around that they offered a standing $1000 bet. The bartender would squeeze a lemon until all the juice ran into a glass, and hand the lemon to a patron. Anyone who could squeeze one more drop of juice out would win the money. Many people had tried over time (weight-lifters, longshoremen, etc.) but nobody could do it.
+A red-faced judge convened court after a long lunch. The first case involved a man charged with drunk driving who claimed it simply wasn't true. 'I'm as sober as you are, your honor,' the man claimed.
 
-One day, this scrawny little man came into the bar, wearing thick glasses and a polyester suit, and said in a tiny squeaky voice, 'I'd like to try the bet.' After the laughter had died down, the bartender said OK, grabbed a lemon, and squeezed away, then he handed the wrinkled remains of the rind to the little man.
-
-But the crowd's laughter turned to total silence as the man clenched his fist around the lemon and six drops fell into the glass. As the crowd cheered, the bartender paid the $1000, and asked the little man, 'What do you do for a living? Are you a lumberjack, a weight-lifter, or what?' The man replied, 'I work for the IRS.'
+The judge replied, 'Clerk, please enter a guilty plea. The defendant is sentenced to 30 days in jail.'
 
