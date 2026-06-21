@@ -1,8 +1,20 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Guilty
+Walking Through Chinatown...
 
-A red-faced judge convened court after a long lunch. The first case involved a man charged with drunk driving who claimed it simply wasn't true. 'I'm as sober as you are, your honor,' the man claimed.
+This guy is walking through Chinatown. He is fascinated with all the  Chinese Restaurants, the Chinese shops, the Chinese signs and banners on the buildings. He is having the best time just walking and looking. He turns a corner and sees a building with a sign 'Hans Olaffsen's Laundry'.
 
-The judge replied, 'Clerk, please enter a guilty plea. The defendant is sentenced to 30 days in jail.'
+'Hans Olaffsen?' he thinks. 'How in the world does that fit in here?' 
+
+He walks into the shop and sees an old Chinese gentleman sitting in the corner. The visitor asks, 'How in the world did this place get a name like Hans Olaffsen's Laundry?'.
+
+The old man answers, 'Is name of owner.'  
+
+The visitor asks, 'Well, who in the heck is the owner?' 
+
+'I am he,' answers the old man. 
+
+ 'You? How in the heck did you ever get a name like Hans Olaffsen?'
+
+The old man replies, 'Many years ago when I come to this country, I was standing in line at Documentation Center. Man in front of me was big blonde Swede.  Lady look at him and go 'What your name? He say Hans Olaffsen. She look at me...What your name? I say Sam Ting.'
 
