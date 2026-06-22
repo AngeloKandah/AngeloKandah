@@ -1,20 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Walking Through Chinatown...
+The Bishop And His Ass
 
-This guy is walking through Chinatown. He is fascinated with all the  Chinese Restaurants, the Chinese shops, the Chinese signs and banners on the buildings. He is having the best time just walking and looking. He turns a corner and sees a building with a sign 'Hans Olaffsen's Laundry'.
+A preacher wanted to raise money for his church and on being told that there was a fortune in horse racing, decided to purchase a horse and enter it in the races. However, at the local auction, the going price for horses was so high that he ended up buying a donkey instead. He figured that since he had it, he might as well go ahead and enter it in the races. To his surprise, the donkey came in third!
 
-'Hans Olaffsen?' he thinks. 'How in the world does that fit in here?' 
+The next day the local paper carried this headline: PREACHER'S ASS SHOWS. The preacher was so pleased with the donkey that he entered it in the race again, and this time it won. The paper read: PREACHER'S ASS OUT IN FRONT. The Bishop was so upset with this kind of publicity that he ordered the preacher not to enter the donkey in another race. The paper headline read: BISHOP SCRATCHES PREACHER'S ASS. This was too much for the Bishop, so he ordered the preacher to get rid of the donkey. The preacher decided to give it to a nun in a nearby convent. The paper headline the next day read: NUN HAS BEST ASS IN TOWN. The Bishop fainted. He informed the nun that she would have to get rid of the donkey, so she sold it to a farmer for $10.00.
 
-He walks into the shop and sees an old Chinese gentleman sitting in the corner. The visitor asks, 'How in the world did this place get a name like Hans Olaffsen's Laundry?'.
-
-The old man answers, 'Is name of owner.'  
-
-The visitor asks, 'Well, who in the heck is the owner?' 
-
-'I am he,' answers the old man. 
-
- 'You? How in the heck did you ever get a name like Hans Olaffsen?'
-
-The old man replies, 'Many years ago when I come to this country, I was standing in line at Documentation Center. Man in front of me was big blonde Swede.  Lady look at him and go 'What your name? He say Hans Olaffsen. She look at me...What your name? I say Sam Ting.'
+The next day the headline read: NUN SELLS ASS FOR $10.00. This was too much for the Bishop, so he ordered the nun to buy back the donkey, lead it to the plains, and let it go. Next day, the headline in the paper read: NUN ANNOUNCES HER ASS IS WILD AND FREE. The Bishop was buried the next day.
 
