@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-School Shoppin'
+Yo Mommas So Stupid
 
-One time I went school shopping... AND BOUGHT THREE SCHOOLS!!!
+Yo mommas so stupid she asked how much she had to pay to get a free car-wash.
 
