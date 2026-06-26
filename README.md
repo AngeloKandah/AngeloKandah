@@ -1,8 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Midget
+Beer
 
-A 6'4' man hit a midget in the rear while at a red light.
-
-The midget gets out of his car and comes up to the man and says, 'I'm NOT happy!' and the man replied, 'Which one are you, then?'
+Beer is proof that God loves us and wants us to be happy!
 
