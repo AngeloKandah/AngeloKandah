@@ -1,10 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Who Who?
+Greetings
 
-Knock Knock!
-Who's there?
-Who who. 
-Who who who? 
-Is there an owl in here?
+cluckedy fuck, place your order
+
+Comment from the Editor: This is an extremely stupid joke and I would advise everyone to give it 0 smileys so that we can rid this world of stoners writing jokes!!
 
