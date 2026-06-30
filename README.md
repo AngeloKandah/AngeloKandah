@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Greetings
+The Darkest Hours
 
-cluckedy fuck, place your order
+The darkest hours come just before the dawn.
 
-Comment from the Editor: This is an extremely stupid joke and I would advise everyone to give it 0 smileys so that we can rid this world of stoners writing jokes!!
+So if you're going to steal your neighbour's milk and newspaper, that's the time to do it.
 
