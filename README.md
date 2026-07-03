@@ -1,7 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-How to Keep Her Busy
+Lawyer vs Dry Cleaner
 
-How do you keep a blond busy?
-Write 'please turn over' on both sides of a paper!
+Q: What's the difference between a dry cleaner and a lawyer?
+
+A: The cleaner pays if he loses your suit.  A lawyer can lose your suit and still take you to the cleaners.
 
