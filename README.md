@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Lawyer vs Dry Cleaner
+500 Lawyers
 
-Q: What's the difference between a dry cleaner and a lawyer?
+What do you call 500 lawyers at the bottom of the sea?
 
-A: The cleaner pays if he loses your suit.  A lawyer can lose your suit and still take you to the cleaners.
+A start.
 
