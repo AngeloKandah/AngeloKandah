@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-500 Lawyers
+Empire State Building
 
-What do you call 500 lawyers at the bottom of the sea?
+What happened when Ray Johnson fell off the Empire State Building?
 
-A start.
+Now everyone calls him x-ray.
 
