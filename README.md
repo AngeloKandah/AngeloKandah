@@ -1,10 +1,9 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Bungee Jumping
+First AID
 
-Eric A. Barcia, a 22-year-old Reston, VA resident, was found dead yesterday after he used bungee cords to jump off a 70-foot railroad trestle, police said.
-
-The fast food worker taped a number of bungee cords together and strapped one end around his foot. Barcia had the foresight to anchor the other end to the trestle at Lake Accotink Park, and he even remembered to measure the length of the bungee cords to make sure that they were a few feet short of the 70 foot drop. He proceeded to fall headfirst from the trestle, and hit the pavement 70 feet below several seconds later.
-
-Fairfax County police said 'The stretched length of the cord that he had assembled was greater than the distance between the trestle and the ground.'
+'How come you're late?' asks the bartender as the blonde waitress walks in the door.
+'It was awful,' she explains. 'I was walking down Elm street and there was this terrible accident. A man was lying in the middle of the street. He'd been thrown from his car. His leg was broken, his skull was fractured, and there was blood everywhere. Thank God I took that first-aid course and all my training came back to me in a minute.' 
+'What did you do?' asks the bartender.
+'I sat down and put my head between my knees to keep from fainting!'
 
