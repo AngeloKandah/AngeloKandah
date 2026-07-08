@@ -1,9 +1,16 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-First AID
+Michigan/Michigan State
 
-'How come you're late?' asks the bartender as the blonde waitress walks in the door.
-'It was awful,' she explains. 'I was walking down Elm street and there was this terrible accident. A man was lying in the middle of the street. He'd been thrown from his car. His leg was broken, his skull was fractured, and there was blood everywhere. Thank God I took that first-aid course and all my training came back to me in a minute.' 
-'What did you do?' asks the bartender.
-'I sat down and put my head between my knees to keep from fainting!'
+How do you keep a Michigan State Player out of your yard?
+
+
+
+
+
+
+
+
+
+Set up a goal post.
 
