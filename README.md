@@ -1,10 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-WOWOLFOL
+America Is Mean
 
-What is represented by this?
+USA:What's wrong world?
 
-WOWOLFOL 
+World:(crying and sniffling) My kitty died! 
 
-Wolf in sheep's clothing (wool)!
+USA: That's unfortunate. Here's a couple hundred billion dollars my hardworking citizens paid. I was gonna spend it on education and defence and whatnot, but you need it more.
+
+World:(takes the money) Cheapass! (spits in USA's face)
 
