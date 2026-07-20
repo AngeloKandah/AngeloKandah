@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-So Poor
+Into the Bar
 
-Yo momma so poor, she cleans her shoes with a pencil.
+There's this dyslexic guy... he walked into a bra...
 
