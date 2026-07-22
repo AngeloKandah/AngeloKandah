@@ -1,11 +1,25 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Camping Trouble
+T-Shirt Messages IV
 
-TRUE STORY
+Politicians and diapers have one thing in common. They should both be changed regularly and for the same reason.
 
-When I was 16, I went camping with my family. My girlfriend, who was also 16, went along with her family as well. We went to the same campground together because her parents knew mine and we're friends. I thought that this was perfect because now I could be with my girlfriend all summer. 
-One night, my girlfriend's parents were chatting with mine, so we sneaked away and went to have some 'fun' at the cottage we were renting. So we got to the cottage but the door was locked so we ended up sneaking through a window.
+The difference between genius and stupidity is that genius has it limits.
 
-We got really busy that night, having lots of 'fun' with each other. During the climax, we heard a noise and we thought our my parents had come back. Then the next thing we knew, an elderly couple opens up the door before we could react, the next thing we saw was a shotgun pointing at us with the man asking us who we are and what we were doing in his cabin... while we were still having sex! We were horrified beyond belief! Apparently we ran and sneaked into the wrong cabin that night because it was too dark to see anything. The elderly couple talked to my parents and my girlfriend's parents the next day and told them what they had seen, and ever since then I could not look my parents or her parents in the eye again.
+Drive carefully. It's not only cars that can be recalled by their maker.
+
+Go ahead and take risks. Just be sure that everything will turn out OK.
+
+STRESSED spelled backwards is DESSERTS.
+
+I don't work here. I'm a consultant.
+
+When in doubt, tell the truth. (Mark Twain)
+
+Constant change is here to stay.
+
+Don't let the past hold you back. You're missing today's good stuff!
+Enthusiasm is contagious. Start an epidemic!
+
+Education is expensive, but ignorance is more so.
 
