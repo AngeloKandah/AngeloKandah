@@ -1,25 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-T-Shirt Messages IV
+Old
 
-Politicians and diapers have one thing in common. They should both be changed regularly and for the same reason.
-
-The difference between genius and stupidity is that genius has it limits.
-
-Drive carefully. It's not only cars that can be recalled by their maker.
-
-Go ahead and take risks. Just be sure that everything will turn out OK.
-
-STRESSED spelled backwards is DESSERTS.
-
-I don't work here. I'm a consultant.
-
-When in doubt, tell the truth. (Mark Twain)
-
-Constant change is here to stay.
-
-Don't let the past hold you back. You're missing today's good stuff!
-Enthusiasm is contagious. Start an epidemic!
-
-Education is expensive, but ignorance is more so.
+Yo mommas so old her birth certificate says 'EXPIRED'
 
