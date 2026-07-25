@@ -1,22 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Game Show
+Cannibal Humor
 
-A man was on a game show. He was on his final question; all he had to do was answer that question right, and he would win 1 million dollars!
+Q: Why are cannibals such great improvs?
 
-The game show host said, 'All right, for your final question: 'What are the names of three of Santa's reindeer?''
-
-The man grinned and said, 'Dasher!'
-
-The game show host said, 'Correct!'
-
-'Comet!'
-
-'Correct! What is the last name?'
-
-The man yelled, 'Olive!'
-
-The game show host was confused and said, 'Why Olive?'
-
-The contestent looked at him strangely and said, 'Oh, don't you know? 'Olive, the other reindeer, used to laugh and call him names...''
+A: They keep feeding off each other.
 
