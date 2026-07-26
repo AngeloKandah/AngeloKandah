@@ -1,8 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Cannibal Humor
+Texans...... Ayayayayay
 
-Q: Why are cannibals such great improvs?
+Texan: 'Where are you from?'
 
-A: They keep feeding off each other.
+Harvard graduate: 'I come from a place where we do not end our sentences with prepositions.'
+
+Texan: 'OK, where are you from, Jackass?'
 
