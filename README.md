@@ -1,10 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Texans...... Ayayayayay
+Cheapskate
 
-Texan: 'Where are you from?'
+Q: How do you keep a cheepskate busy?
 
-Harvard graduate: 'I come from a place where we do not end our sentences with prepositions.'
-
-Texan: 'OK, where are you from, Jackass?'
+A: Put him or her in a round room and tell them that you droped a $20 bill in the corner.
 
