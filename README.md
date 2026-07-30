@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Two Men
+Wedding Rehearsal
 
-Man: How many asian people does it take to screw in a lightbulb?
+At a wedding rehearsal, the pastor told the father of the bride, 'As you give your daughter's hand to the bridegroom, you should say something nice to him.'
 
-Asian Man: Whats a lightbulb?
+The father, a department store manager, took the advice. During the wedding ceremony, he placed his daughter's hand on his son-in-law's arm and said, 'No deposit, no return.'
 
