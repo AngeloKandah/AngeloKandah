@@ -1,8 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Wedding Rehearsal
+Apology
 
-At a wedding rehearsal, the pastor told the father of the bride, 'As you give your daughter's hand to the bridegroom, you should say something nice to him.'
-
-The father, a department store manager, took the advice. During the wedding ceremony, he placed his daughter's hand on his son-in-law's arm and said, 'No deposit, no return.'
+This is not supposed to be funny.
+I want to make a public apology for the temper tantrum I threw earlier today. I still don't get it but I am sorry for blaming everyone else for my problems.
+AC3P1L07
+P.S.
+please vote this as funny so more people will see it.
 
