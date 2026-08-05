@@ -1,37 +1,46 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-QTITLEA
+What the Doc Means
 
-Q: Why are dumb blonde jokes so short?
-A: So brunettes can remember them. 
+'Well, what have we here...?' 
+He has no idea and is hoping you'll give him a clue.
 
-Q: What do you do if a blonde throws a grenade at you?
-A: You pick it up pull the pin JOKE throw it back. 
+'Well, we're not feeling so well today, are we...?' 
+I'm stalling for time. 
 
-Q: What happened to the blonde tap dancer? 
-A: She slipped off and fell down the drain. 
+'If it doesn't clear up in a week, give me a call.' 
+I don't know what it is. Maybe it will go away by itself. 
 
-Q: How can you tell if a blonde has been using the computer? 
-A: The joystick is wet. 
+'Let me check your medical history.' 
+I want to see if you've paid your last bill before spending anymore time with you. 
 
-Q: What's the quickest way to get into a blondes pants?
-A: Pick them up off the floor. 
+'Well, now, we have some good news and some bad news.' 
+The good news is, I'm going to buy that new BMW. The bad news is, you're going to pay for it. 
 
-Q: Why don't blonds play frisbee? 
-A: It hurts their teeth. 
+'This should be taken care of right away.' 
+I'd planned a trip to Hawaii next month but this is so easy and profitable that I want to fix it before it cures itself. 
 
-Q: What do you call a blonde with half a brain? 
-A: Gifted! 
+'Let me schedule you for some lab tests.' 
+I have a forty percent interest in the lab. 
 
-Q: How do blonde braincells die ? 
-A: Alone. 
+'Let's see how it develops.' 
+Maybe in a few days it will grow into something that really needs to be cured. 
 
-Q: Why don't blondes eat bananas? 
-A: They can't find the zipper. 
+'I'd like to prescribe a new drug.' 
+I'm writing a paper and would like to use you for a guinea pig. 
 
-Q: How did the blonde try to kill the fish? 
-A: She tried to drown it. 
+'That's quite a nasty looking wound.' 
+I think I'm going to throw up. 
 
-Q: What's the difference between a blonde and a 747?
-A: Not everyone has been in a 747.
+'This may smart a little.' 
+Last week two patients almost bit off their tongues. 
+
+'This should fix you up.' 
+The drug company slipped me some big bucks to prescribe this stuff. Hope it works... 
+
+'Everything seems to be normal.' 
+Rats! I guess I can't buy that new beach condo after all. 
+
+'I'd like to run some more tests.' 
+I can't figure out what's wrong. Maybe the kid in the lab can solve this one.
 
