@@ -1,8 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-No, YOU Guess!
+Hot Pursuit
 
-A young and foolish pilot wanted to sound cool and show who was boss on the aviation frequencies. So, this was his first time approaching a field during the nighttime. Instead of making any official requests to the tower, he said, 'Guess who?'   
+Two Alabama State Trooper Patrol cars were in hot pursuit of a Camaro heading east towards Georgia on I-90. 
 
-The controller switched the field lights off and replied, 'Guess where!'
+When the suspect crossed the Georgia line, the first trooper pulled over immediately. The rookie Trooper pulled over right behind him and asked, 'Sarge, why'd you stop?'
+
+'You dumb rookie,' replied the Sarge. 'He's in Georgia now. They're an hour ahead of us, so we'll never catch him.'
 
