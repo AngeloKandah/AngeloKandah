@@ -1,10 +1,23 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Hot Pursuit
+Really Important Stuff Kids Have Taught Me II
 
-Two Alabama State Trooper Patrol cars were in hot pursuit of a Camaro heading east towards Georgia on I-90. 
+Sometimes you have to take the test before you've finished 
+studying.
 
-When the suspect crossed the Georgia line, the first trooper pulled over immediately. The rookie Trooper pulled over right behind him and asked, 'Sarge, why'd you stop?'
+If you want a kitten, start out asking for a horse.
 
-'You dumb rookie,' replied the Sarge. 'He's in Georgia now. They're an hour ahead of us, so we'll never catch him.'
+Picking your nose when no one else is looking is still picking your nose.
+
+Just keep banging until someone opens the door.
+
+Making your bed is a waste of time.
+
+There is no good reason why clothes have to match.
+
+Even Popeye didn't eat his spinach until he absolutely had to.
+
+You work so hard pedalling up the hill that you hate to brake on the way down.
+
+You can't ask to start over just because you're losing the game.
 
