@@ -1,23 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Really Important Stuff Kids Have Taught Me II
+Harry
 
-Sometimes you have to take the test before you've finished 
-studying.
-
-If you want a kitten, start out asking for a horse.
-
-Picking your nose when no one else is looking is still picking your nose.
-
-Just keep banging until someone opens the door.
-
-Making your bed is a waste of time.
-
-There is no good reason why clothes have to match.
-
-Even Popeye didn't eat his spinach until he absolutely had to.
-
-You work so hard pedalling up the hill that you hate to brake on the way down.
-
-You can't ask to start over just because you're losing the game.
+Knock! Knock! 
+Who's there? 
+Harry. 
+Harry who? 
+Harry up and let me in!
 
