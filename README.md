@@ -1,10 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Harry
+Strike Bowling
 
-Knock! Knock! 
-Who's there? 
-Harry. 
-Harry who? 
-Harry up and let me in!
+Lisa was playing bowling with her friend Marie.  Lisa got a strike, then one more strike.  Then, she got another strike.  She had just gotten 3 strikes in a row!  
+
+'I just got 3 strikes in a row!' said Lisa.
+
+Marie said, 'You're out, you just got 3 strikes in a row!'
 
