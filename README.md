@@ -1,6 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-College
+Animal Crackers
 
-A man goes to school and learns stuff.
+A mother and her young son returned from the grocery store and began putting away the groceries. The boy opened the box of animal crackers and spread them all over the table. 
+'What are you doin?' his mother asked; 'you can't eat them if the seal is broken.'
+The boy explained, 'I'm looking for the seal.'
 
