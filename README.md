@@ -1,8 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Animal Crackers
+The Steelers TITLE The Browns
 
-A mother and her young son returned from the grocery store and began putting away the groceries. The boy opened the box of animal crackers and spread them all over the table. 
-'What are you doin?' his mother asked; 'you can't eat them if the seal is broken.'
-The boy explained, 'I'm looking for the seal.'
+Once upon a time, long, long ago there was a season when neither the Browns nor the Steelers made the post season playoffs. It seemed so unusual that the management of both teams got together and decided that there should be some sort of competition between the two teams, because of their great rivalry. So, they decided on a week long ice fishing competition.  The team that catches the most fish at the end of the week wins. 
+
+So on a cold freezing day on Lake Erie they began their contest. 
+
+The first day after 8 hours of fishing the Browns had caught 0 fish and the Steelers had 100. At the end of the 2nd day the Browns had caught 0 fish and the Steelers 200. 
+
+That evening the Browns coach got his team together and said, 'I suspect some kind of cheating is taking place.'  So the next morning, he dressed one of his players in black and yellow and sent him over to the Steelers camp to act as a spy. At the end of the day he came back to report to the coach.  The coach asked, 'Well, how about it, are they cheating?' 
+
+'They sure are!' the player reported, 'They're cutting holes in the ice.'
 
