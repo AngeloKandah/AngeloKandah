@@ -1,9 +1,16 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Now You See Me . . . .
+God's Work
 
-What's red and invisible?
+Grandpa and granddaughter were sitting talking when she asked, 'Did God make you, Grandpa?'
 
+'Yes, God made me,' the grandfather answered.
 
-No tomato.
+A few minutes later, the little girl asked him, 'Did God make me, too?'
+
+'Yes, He did,' the older man answered.
+
+For a few minutes, the little girl seemed to be studying her grandpa, as well as her own reflection in the mirror, while her grandfather wondered what was running through her mind.
+
+At last she spoke up. 'You know, Grandpa,' she said, 'God's doing a lot better job lately.'
 
