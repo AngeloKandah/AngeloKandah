@@ -1,16 +1,18 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-God's Work
+Real Men
 
-Grandpa and granddaughter were sitting talking when she asked, 'Did God make you, Grandpa?'
+As I always say, 'REAL men don't shave below the neck.'
 
-'Yes, God made me,' the grandfather answered.
+Well, unless they are a body builder, I guess you have to show it off.
 
-A few minutes later, the little girl asked him, 'Did God make me, too?'
+Then again, it might be good for a boxer to be more slippery so punches have less 'stick' or whatever.
 
-'Yes, He did,' the older man answered.
+Yea, I guess it's the same with kick boxers.
 
-For a few minutes, the little girl seemed to be studying her grandpa, as well as her own reflection in the mirror, while her grandfather wondered what was running through her mind.
+Also, I guess porn stars have their reasons.
 
-At last she spoke up. 'You know, Grandpa,' she said, 'God's doing a lot better job lately.'
+And male models....
+
+OK, I guess I meant that 'REAL men don't shave below the neck, unless they can beat me up, of course.'
 
