@@ -1,6 +1,16 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Hawaii Hockey
+Weird Facts IX
 
-As is known, there is a large leper colony in Hawaii. To help ease the pain the patients have while there, a hockey rink was built to provide them entertainment. Only problem was that only one game ever got played on the rink. Within two minutes of game time, there was a face off in the corner.
+Mosquitoes have 47 teeth.
+
+An ant can lift 50 times its own weight.
+
+Holland is the only country with a national dog.
+
+The first penny had the motto 'mind your own business.
+
+Before mercury, brandy was used to fill thermometers.
+
+Chinese is the most commonly spoken language in the world.
 
