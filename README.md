@@ -1,16 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Weird Facts IX
+Stupid Dress
 
-Mosquitoes have 47 teeth.
-
-An ant can lift 50 times its own weight.
-
-Holland is the only country with a national dog.
-
-The first penny had the motto 'mind your own business.
-
-Before mercury, brandy was used to fill thermometers.
-
-Chinese is the most commonly spoken language in the world.
+Yo momma's so stupid, when you asked her for an evening gown, she came back with a night dress!
 
