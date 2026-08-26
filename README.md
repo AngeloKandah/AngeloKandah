@@ -1,12 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-While in Line at the Bank...
+The Box.
 
-While in line at the bank one afternoon, my toddler decided to release some pent-up energy and ran amok. I was finally able to grab hold of her, after receiving looks of disgust and annoyance from other patrons. I told her that if she did not start behaving 'right now', she would be punished.
+There was a man, let's call him Gregory. Gregory was carrying a small box, and he went to another man's house (we'll call him Jebediah) and knocked on the door. When Jebediah answered, Gregory said 'I have a proposition for you. Take this box. There is a button inside. If you press the button before I return, someone that you don't know will die. Tomorrow, I will return. If you have pressed the button, I will give you $20,000.'
 
-To my horror, she looked me in the eye and said, in a voice just as threatening, 'If you don't let me go right now, I will tell Grandma that I saw you kissing Daddy's pee-pee last night!'
+Gregory left the box with Jebediah. Jebediah had to consider what he was going to do. Eventually he decided that he didn't care about the person, and he pressed the button.
 
-The silence was deafening after this enlightening exchange. Even the tellers stopped what they were doing. I mustered up the last of my dignity and walked out of the bank with my daughter in tow.
+The next day, Gregory returned to take back the box. 'Well then, I belive that this is yours,' he said, giving $20,000 to Jebediah. 'Thank you,' Jebediah said. 'By the way, I'm just curious: What are you going to do with the box now?'
 
-The last thing I heard when the door closed behind me were screams of laughter.
+'I'm going to give it to someone that doesn't know you.'
 
