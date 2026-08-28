@@ -1,12 +1,52 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Box.
+Fighting Fire With Fire
 
-There was a man, let's call him Gregory. Gregory was carrying a small box, and he went to another man's house (we'll call him Jebediah) and knocked on the door. When Jebediah answered, Gregory said 'I have a proposition for you. Take this box. There is a button inside. If you press the button before I return, someone that you don't know will die. Tomorrow, I will return. If you have pressed the button, I will give you $20,000.'
+(A father is letting five kids make a complete mess of the restaurant. They're ripping napkins and using it as confetti, breaking chopsticks and screaming their little heads off.)
 
-Gregory left the box with Jebediah. Jebediah had to consider what he was going to do. Eventually he decided that he didn't care about the person, and he pressed the button.
+Me: 'Sir, I'm going to have to ask you to tell them to stop doing that. They are disturbing the other customers.'
 
-The next day, Gregory returned to take back the box. 'Well then, I belive that this is yours,' he said, giving $20,000 to Jebediah. 'Thank you,' Jebediah said. 'By the way, I'm just curious: What are you going to do with the box now?'
+Father: *beaming* 'No.'
 
-'I'm going to give it to someone that doesn't know you.'
+Me: 'No, as in, no you won't tell them to stop it?'
+
+Father: *still beaming*'Yes.'
+
+(I have to get back to work at this point and sure enough, the kids keep misbehaving. Several customers complain to me but I have no authority to throw them out. The last to complain is a table with about eight young guys.)
+
+Customer 1: 'So there's nothing you can do about them?'
+
+Me: 'I'm so very sorry sir, but no. I can get you a drink from the house to make up for it.'
+
+Customer 2: 'No, that won't do.'
+
+Me: 'Well, I can see if I can get you a free desert...'
+
+Customer 2: 'Not what I meant. Can't you get your boss?'
+
+Me: 'I'm afraid he's not in, sir.'
+
+Customer 1: 'Well we won't accept any free stuff. I bet that would come out of your pay.'
+
+Customer 3: 'Hold on...'
+
+(The customer gets up and the others immediately follow him to the noisy, messy table. They're now surrounded by eight tall young men who look mighty pissed.)
+
+Customer 3, to the father: 'Tell them to stop it.'
+
+Father: *still beaming* 'No.'
+
+Customer 1: 'You're upsetting the waitress.'
+
+Father: 'Do you guys even work here?'
+
+Customer 1: 'No, we're from that prison up the street. We're out on parole. Funny coincidence, we all served seven years for kidnapping and murdering a bunch of noisy brats and a jerk who made minimum-wage waitresses cry.'
+
+(At this point the kids become very, very quiet and the other patrons start giggling and staring.)
+
+Father: 'You're lying.'
+
+Customer 4: 'Wanna take that chance, buddy?'
+
+(One more lecherous grin was enough to send the whole bunch of misfits scurrying to the exit. My knights in shining armor actually got applause from the other diners and a free meal from me.)
 
