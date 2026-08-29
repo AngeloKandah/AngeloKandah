@@ -1,18 +1,18 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Favorite Professor One Liners
+Jesus Christ!
 
-1. All of you, stand in a straight circle.
+The preschoolers' Sunday school teacher told them that she wanted each of them to learn one fact about Jesus by the following Sunday. The next Sunday, she asked each of them what they had learned.
 
-2. I have two daughters, and both are girls!
+'I learned that he was born in a manger,' said Julie.
 
-3. Both the three of you get out of the class.
+Timmy said, 'I learned that he threw the money changers out of the temple.'
 
-4. I saw you with my wife.....in the theatre.
+'What about you, Johnny? What did you learn?' the teacher asked.
 
-5. Open the windows let the Airforce come in.
+'He has a pick-up truck and he doesn't know how to drive,' replied Little Johnny.
 
-6. Boys go to the right, girls to the left. The rest follow me.
+Curious, the teacher asked, 'And where did you learn that, Johnny?'
 
-7. How dare you look at the monkey outside the window when I'm sitting here!
+'I learned it from Daddy,' Little Johnny explained. 'When we were driving down the highway, a pick-up truck cut right in front of us and Daddy shouted, 'Jesus Christ! Why don't you learn how to drive!'
 
