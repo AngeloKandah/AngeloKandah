@@ -1,8 +1,9 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Blonde Pen Invintion
+MARY HAD A LITTLE LAMB...
 
-Q.) How does a blonde make a stainless ink pen?
-
-A.) She doesn't put ink in it.
+MARY HAD A LITTLE LAMB
+Her father shot it dead
+Now it goes to school with her
+Between two hunks of bread.
 
