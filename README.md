@@ -1,9 +1,9 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-MARY HAD A LITTLE LAMB...
+Warnings
 
-MARY HAD A LITTLE LAMB
-Her father shot it dead
-Now it goes to school with her
-Between two hunks of bread.
+JCPenny blowdryer: do not use while sleeping
+**********
+caution: hot chocolate may be hot
+**********
 
