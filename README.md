@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Penguins
+Reading the Bible
 
-Penguins mate for life.
+'Why do you keep reading the Bible every day?' the teenage girl asked her grandfather. 
 
-This is not surprising, as they all look the same.  It's not like they have to wait and wonder if someone better will come along!
+'Well, it's a bit like cramming for your final exam,' said Granddad.
 
