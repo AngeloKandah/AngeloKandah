@@ -1,8 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Dolly Parton
+Bra
 
-Why can't Dolly Parton be a teacher?
+Girl: 'Have you ever been caught been wearing your mother's bra?
 
-Because every time she turns around she erases the black board.
+Boy: 'No!'
+
+Girl: 'So you have worn them but not been caught?'
 
