@@ -1,10 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Bra
+A Calendar
 
-Girl: 'Have you ever been caught been wearing your mother's bra?
-
-Boy: 'No!'
-
-Girl: 'So you have worn them but not been caught?'
+A calendar â something that goes in one year and out the other.
 
