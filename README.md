@@ -1,6 +1,13 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-A Calendar
+How to be a Human Echo
 
-A calendar â something that goes in one year and out the other.
+Everyone can be an Echo!
+
+1] Repeat everything a person says JOKE does in an exaggerated  way
+
+2] If your victim tries to get you to stop by saying something like, 'I'm a stupid furball,' say ' at least you have the courage to admit it!'
+
+3]This is the most important instruction!
+ DO NOT LET YOUR VICTIM NEAR A BOOK!
 
