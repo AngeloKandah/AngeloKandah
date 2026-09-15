@@ -1,13 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-How to be a Human Echo
+Tornado Disaster
 
-Everyone can be an Echo!
+President Bush toured parts of Missouri that were devastated by a recent tornado.
 
-1] Repeat everything a person says JOKE does in an exaggerated  way
-
-2] If your victim tries to get you to stop by saying something like, 'I'm a stupid furball,' say ' at least you have the courage to admit it!'
-
-3]This is the most important instruction!
- DO NOT LET YOUR VICTIM NEAR A BOOK!
+There was one awkward moment, when the President looked at the tornado damage and said, 'Don't worry, we're going to get whoever did this.'
 
