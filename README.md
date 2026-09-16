@@ -1,8 +1,13 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Tornado Disaster
+When You Care Enough...
 
-President Bush toured parts of Missouri that were devastated by a recent tornado.
+A new business was opening and one of the owner's friends wanted to send flowers for the occasion.
 
-There was one awkward moment, when the President looked at the tornado damage and said, 'Don't worry, we're going to get whoever did this.'
+They arrived at the new business site and the owner read the card; it said 'Rest in Peace'.
+
+When the friend found out, she became angry and called the florist to complain. After she had told the florist of the obvious mistake and how angry she was, the florist said.
+
+'Madam, I'm really sorry for the mistake, but rather than getting angry you should imagine this: somewhere there is a funeral taking place today, and they have flowers with a note saying,
+'Congratulations on your new location'.
 
