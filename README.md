@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-At the Zoo
+Egg Fun
 
-1st woman: I took my son to the zoo yesterday.
+What did the lunch lady say to the boiled egg?
 
-2nd woman: Did they accept him?
+You're in hot water now!!!
 
