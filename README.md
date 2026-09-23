@@ -1,12 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-And God Created A Sleeping Man
+Know-It-All
 
-A couple went to church every week, but every week without fail the husband would fall asleep during the sermon. The wife, being embarrassed by her husband's loud snoring, decided to bring a needle to the next service and poke him when he nodded off. The next week when they were in church, the husband, as always, fell asleep. 
+'Danny,' asked Mrs Waters, 'What's usually used as a conductor of electricity?'
 
-'Who created the earth in 6 days and rested on the 7th?' the preacher asked. The wife stuck her husband with the needle and he jumped up and exclaimed, 'Oh, my God!' The preacher said 'That's correct.' And the husband sat down mumbling to himself. He soon fell asleep again.
+'Why- er...'
 
-The preacher got to the question, 'Who died on the cross to save us from eternal damnation?' The wife stuck her husband again and he jumped up and exclaimed, 'Jesus Christ!' The preacher said, 'Right again.' With this, the husband fell suspicious of his wife and decided to catch her in the act. The husband pretended to fall asleep while keeping an eye on his wife. 
+'Correct, wire. Now tell me, what is the unit of electrical power?'
 
-'What did Mary say to Joseph after Jesus was born?' the preacher asked. The wife started to poke her husband again, but before she could the husband jumped up and exclaimed, 'If you stick that damn thing in me again, I'm gonna break it in half!'
+'The what??'
+
+That's absolutely right. The watt.'
 
