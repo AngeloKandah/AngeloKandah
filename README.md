@@ -1,14 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Know-It-All
+You So Ugly
 
-'Danny,' asked Mrs Waters, 'What's usually used as a conductor of electricity?'
-
-'Why- er...'
-
-'Correct, wire. Now tell me, what is the unit of electrical power?'
-
-'The what??'
-
-That's absolutely right. The watt.'
+Your so ugly you remind me of an elephants bottom.
 
