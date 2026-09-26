@@ -1,19 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-More Racist Jokes...
+50 Cent
 
-What do you call a group of white people running down a hill?
-Avalanche!
+What was 50 Cent's daughter named?
 
-What do you call a group of black people running down a hill?
-Mudslide!
-
-What do you call a group of Latinos running down a hiil?
-JAILBREAK!
-
-How do you find the country of Mexico?
-Roll a quarter down a hill.
-
-How do you find the richest Mexican?
-Find the one who got the quarter!
+Penny!
 
