@@ -1,8 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-50 Cent
+Heavy Soup
 
-What was 50 Cent's daughter named?
+What kind of soup weighs 1000 pounds?
 
-Penny!
+Won ton soup!
 
