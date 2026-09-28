@@ -1,8 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Heavy Soup
+Keeping Tabs
 
-What kind of soup weighs 1000 pounds?
+It's forty below zero one winter 'night' in Alaska. Pat is drinking at his local saloon and the bartender says to him, 'You owe me quite a bit on your tab.'
 
-Won ton soup!
+'Sorry,' says Pat, 'I'm flat broke this week.'
+
+'That's okay,' says the bartender. 'I'll just write your name and the amount you owe me right here on the wall.'
+
+'But,' says Pat, 'I don't want any of my friends to see that.'
+
+'They won't,' says the bartender. 'I'll just hang your parka over it until it's paid.'
 
