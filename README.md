@@ -1,6 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-On the Beach
+Magical Mirror
 
-Your momma so fat that when she layed on the beach, four guys from greenpeace tried to throw her back in.
+A brunette, blonde and a redhead walk into a bar.
+
+The bartender tells them there is a magic mirror in the back room and if you stand in front of it and say something you think that's true you'll get something nice. But if you lie you'll be sucked in, never to be heard from again.
+
+The brunette says, 'I think I am the prettiest person in the bar,' and she gets a brand new Corvette.
+
+The redhead says, 'I think I am the smartest person in the bar,' and she gets 1 million dollars.
+
+The blonde says, 'I think---' And she disappeared.
 
