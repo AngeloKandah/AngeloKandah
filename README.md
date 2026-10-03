@@ -1,11 +1,46 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Ladies Club
+Things You Learn From Video Games
 
-So ... the other day, my friends and I went to this 'Ladies Night Club.' 
-One of the girls wanted to impress us, so she pulls out a $10 bill. 
-The 'dancer' came over to us, and my friend licked the $10 and put it on his butt cheek. 
-Not to be outdone, another friend pulls out a $20 bill. She calls the guy back over, licks the $20 bill and puts it on his other butt cheek. 
-Still attempting to impress the rest of us, my other friend pulls out a $50 bill. She calls the guy back over again, licks the $50 bill and again puts it on one of his butt cheeks. Now the attention is focused on me. What could I do to top that? 
-I got out my wallet, thought for a minute ... and then the financial analyst in me took over. I got out my ATM card, swiped it down the crack of his ass, grabbed the $80 bucks and went home!
+Things You Learn from Video Games
+
+There is no problem that cannot be overcome by force.
+
+If it moves, DESTROY IT!
+
+Piloting any vehicle is simple and requires no training.
+
+One lone 'good guy' can defeat an infinite number of 'badguys.'
+
+Make sure you eat all food lying on the ground.
+
+You can break things and get away with it.
+
+You can push other vehicles off the road and get away with it.
+
+If someone dies, they disappear.
+
+If you get mad enough, you can fight even better.
+
+You can overcome most adversaries simply by having enough quarters.
+
+You can operate all weapons without training.
+
+No matter how long you fight, you can always fight again.
+
+Death is reversible (only for you!)
+
+Ninjas are common, and frequently fight in public.
+
+Whenever big fat mean guys are about to croak, they begin flashing red or yellow.
+
+You never run out of ammunition, just grenades.
+
+All women wear revealing clothes and have great bodies.
+
+Shoot everything.  If it blows up or dies, it was bad.
+
+Don't worry if your vehicle crashes and explodes.  A new vehicle will appear in its place.
+
+A thousand-to-one odds against you is NOT a problem.
 
