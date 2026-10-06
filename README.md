@@ -1,10 +1,7 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Train
+Blondes At College
 
-Knock-Knock!
-Who's there?
-Chugga Chugga Chooch
-Chugga Chugga Chooch Who?
-Wheeee!! A train! All aboard!
+What are the blonde's first words after 4 years of college? 
+'Would you like fries with that?'
 
