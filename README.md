@@ -1,12 +1,23 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Body Doubles
+Don't Give Me Food... Give Me Water
 
-The eight Saddam body doubles are gathered in one of the bunkers in downtown Baghdad. Tariq Aziz, the deputy prime minister, comes in and says, 'I have some good news and some bad news.' They ask for the good news first.
+Give me food and I will live.
+Give me water and I will die.
+What or who am I?
+(Scroll down)
 
-Aziz says, 'The good news is that Saddam is still alive, so you all still have jobs.'
 
-'And the bad news?' they ask.
 
-Aziz replies, 'He's lost an arm'.
+
+
+
+
+
+
+
+
+
+
+A fire
 
