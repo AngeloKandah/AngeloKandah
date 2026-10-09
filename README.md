@@ -1,23 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Don't Give Me Food... Give Me Water
+Funny, Sorta
 
-Give me food and I will live.
-Give me water and I will die.
-What or who am I?
-(Scroll down)
-
-
-
-
-
-
-
-
-
-
-
-
-
-A fire
+IF I LOST A DOLLAR FOR EVERY BRAIN YOU HAVE, I WOULD BE IN DEBT
 
