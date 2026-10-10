@@ -1,6 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Funny, Sorta
+What Would They Say...
 
-IF I LOST A DOLLAR FOR EVERY BRAIN YOU HAVE, I WOULD BE IN DEBT
+3 guys die in a car wreck and are sent to heaven.
+At the gates St. Peter asks the three men what they would want their families to say at the funeral.
+The first man says, 'I want them to say I was an excellent husband and a great police officer.'
+The second man says, 'I want them to say I was a great husband, a wonderful teacher and that I made a huge difference in their lives.'
+The third man says, 'I wish they would say...LOOK! HE'S MOVING!'
 
