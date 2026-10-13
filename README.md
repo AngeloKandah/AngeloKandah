@@ -1,8 +1,9 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Send in the Clowns
+Lower and Slower
 
-You might be a redneck if...
+You've probably heard: If at first you don't succeed, lower your standards. 
 
-You're 42 and still have clowns come to your birthday party.
+
+New Version: If at first you get hit below the belt, lower your belt!
 
