@@ -1,9 +1,24 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Lower and Slower
+Top 10 Anoying Things to Do
 
-You've probably heard: If at first you don't succeed, lower your standards. 
+10) Hum or sing when ever possible.
 
+9) Always chew with your mouth open.
 
-New Version: If at first you get hit below the belt, lower your belt!
+8) Pretend to fly around the room.
+
+7) Have fights with your imaginary friends.
+
+6) At school, fall asleep in every class.
+
+5) When people turn around, make faces.
+
+4) Scream every 10 minutes.
+
+3) Tell every one you have a twin and then pretend to be the twin. 
+
+2) Say, 'I don't know.' when you are asked a question, no matter what the question is.
+
+1) Tap your pencil on every surface.
 
