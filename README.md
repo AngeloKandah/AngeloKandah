@@ -1,6 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Make a Long Story Short
+Madam
 
-To make a long story short, well, it helps if the boss walks in!
+Knock Knock
+
+Who's there?
+
+Madam
+
+Madam who?
+
+Madam foot's caught in the door!
 
