@@ -1,28 +1,50 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Disk Care
+Things Not To Say On Your Wedding Night...
 
-By following the instructions below, you should have error-free, long-lasting floppy disks. 
+But everybody looks funny naked! 
 
-1. Never leave diskettes in the disk drive, as data can leak out of the disk and corrode the inner mechanics of the drive. Diskettes should be rolled up and stored in pencil holders. 
+You woke me up for that?
 
-2. Diskettes should be cleaned and waxed once a week. Microscopic metal particles can be removed by waving a powerful magnet over the surface of the disk. Any stubborn metallic shavings can be removed with scouring powder and soap. When waxing the diskettes, make sure the surface is even. This will allow the diskette to spin faster, resulting in better access time. 
+Did I mention the video camera?
 
-3. Do not fold diskettes unless they do not fit into the drive. 'Big' diskettes may be folded and used in 'little' disk drives. 
+Hurry up! This room rents by the hour!
 
-4. Never insert a diskette into the drive upside down. The data can fall off the surface of the disk and jam the intricate mechanics of the drive. 
+Can you please pass me the remote control?
 
-5. Diskettes cannot be backed up by running them through the xerox machine. If your data is going to need to be backed up, simply insert two diskettes into the drive. Whenever you update a document, the data will be written on both diskettes. 
+Do you accept Visa?
 
-6. Diskettes should not be inserted or removed from the drive while the red light is flashing. Doing so could result in smeared or possibly unreadable text. Occasionally the red light remains flashing in what is known as a 'hung' or 'hooked' state. If your system is 'hooking' you will probably need to insert a few coins before being allowed access to the slot. 
+ZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZ
 
-7. If your diskette is full and you need more storage space, remove the disk from the drive and shake vigorously for 2 minutes. This will pack the data enough (Data Compression) to allow for more storage. Be sure to cover all the openings with scotch tape to prevent loss data. 
+On second thought, let's turn off the lights.
 
-8. Access time can be greatly improved by cutting more holes in the diskette jacket. This will provide more simultaneous access points to the disk. 
+Do you get any premium movie channels?
 
-9. Diskettes may be used as coasters for beverage glasses, provided that they are properly waxed beforehand. Be sure to wipe the diskettes dry before using. (see item 2 above) 
+Try not to smear my make-up, will ya?
 
-10. Never use scissors and glue to manually edit documents. The data is stored much too small for the naked eye, and you may end up with data from some other document stuck in the middle of your document. Razor blades and scotch tape may be used, however, provided the user is equipped with an electron microscope. 
+But I just brushed my teeth . . .
 
-11. Periodically spray diskettes with insecticide to prevent system bugs from spreading.
+Smile, you're on Candid Camera!
+
+Did you know the ceiling needs painting?
+
+Did I remember to take my pill?
+
+But my cat always sleeps on that pillow . . .
+
+Did I tell you my Aunt Martha died in this bed?
+
+You're almost as good as my ex!
+
+Now I know why he/she dumped you . . .
+
+What are you planning to make for breakfast?
+
+I have a confession . . .
+
+You can cook too, right?
+
+Sorry about the name tags, I'm not very good with names.
+
+Don't mind me . . . I always file my nails in bed.
 
