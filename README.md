@@ -1,6 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Gambling
+Really Old
 
-A man is playing poker, and sees a sign that says: If You Have A Gambling Problem call 1-800-GAMBLING. So the man calls the hotline and says, 'The guy on my right has an ace and a two, I have a three and a jack, there is a four, a five, and a queen on the table, what should I do?'
+My health teacher said once he was talking to this one guy and a student. As they were talking the student got curious and asked, 'How long have you been teaching here?'
+
+My health teachser replied, 'Oh about 37 years.'
+
+The student said he must be old and the other guy, who is elderly as well says,
+
+'Ya, and Jesus still owes me a buck.'
 
