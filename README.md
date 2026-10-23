@@ -1,12 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Really Old
+Sex Over Easy
 
-My health teacher said once he was talking to this one guy and a student. As they were talking the student got curious and asked, 'How long have you been teaching here?'
+These two eggs had just been married and were on their honeymoon. While they were sitting on the bed making out, the female egg pushed the male egg away and said, 'I just have to go to the bathroom. I'll be back in a minute.' and off she went. 
 
-My health teachser replied, 'Oh about 37 years.'
+Five minutes later, the male egg saw his sexy wife walk out in a slinky negligee, wiping her hands up and down her smooth, oval-shaped body. 
 
-The student said he must be old and the other guy, who is elderly as well says,
+Instantly, the male egg slapped his hands on the top of his head, covering it completely. 
 
-'Ya, and Jesus still owes me a buck.'
+The female egg looked at him and asked what he was doing. 
+
+He replied, 'The last time I was this hard, someone cracked me on the head with a spoon!'
 
