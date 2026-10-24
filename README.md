@@ -1,14 +1,9 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Sex Over Easy
+Alligator Shoes
 
-These two eggs had just been married and were on their honeymoon. While they were sitting on the bed making out, the female egg pushed the male egg away and said, 'I just have to go to the bathroom. I'll be back in a minute.' and off she went. 
-
-Five minutes later, the male egg saw his sexy wife walk out in a slinky negligee, wiping her hands up and down her smooth, oval-shaped body. 
-
-Instantly, the male egg slapped his hands on the top of his head, covering it completely. 
-
-The female egg looked at him and asked what he was doing. 
-
-He replied, 'The last time I was this hard, someone cracked me on the head with a spoon!'
+A blonde was out shopping in Lousiana when she saw a beautiful pair of shoes made from genuine alligator skin. She goes into the store and asks the price. The shopkeeper says, '$1000'
+The blonde not having that kind of money tried to haggle with the store's owner, until the owner finally got fed up and threw her out of his store.
+The blonde furious yells at the store owner, 'FINE! KEEP YOUR DAMN SHOES! I'LL GO HUNT MY OWN ALLIGATOR AND THEN GET MY OWN SHOES FOR A FAIR PRICE!!!!'
+Driving home the store owner sees the blonde in a local swamp, up to her waist in the muddy waters holding a double-barrel shotgun. Just then he sees the blonde take aim at a nearby alligator taking a nap and shoots it straight in the gut. With great effort he watches her drag the alligator to the shore, where to his suprise, a half dozen more alligators all lay dead. He then sees the blonde flip the alligator over onto his back. Then watching, he sees the blondes face turn a deep red and hears her yell, 'DAMMIT! THIS ALLIGATOR ISNT WEARING ANY SHOES EITHER!'
 
