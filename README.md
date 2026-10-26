@@ -1,9 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Kids at Work
+Ford
 
-A man comes home with his little daughter, whom he has just taken to work. The little girl asks, 'I saw you in your office with your secretary. Why do you call her a doll?' 
-Feeling his wife's gaze upon him, the man explains, 'Well, honey, my secretary is a very hard-working girl. She types like you wouldn't believe, she knows the computer system and is very efficient.' 
-
-'Oh,' says the little girl, 'I thought it was because she closed her eyes when you lay her down on the couch.'
+This big-time rancher from Texas met a Missouri farmer on a business trip.
+The Texas rancher bragged, 'I can get in my truck, drive all day, and never cross the boundary of my ranch!'
+'Yep,' replied the little Missouri farmer, 'I had a truck like that once, too.'
 
