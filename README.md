@@ -1,14 +1,15 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Dodging Cars
+Says It All!
 
-There's a man trying to cross the street. As he steps off the curb a car comes screaming around the corner and heads straight for him. 
+Pythagorean Theorem - 24 words.
+Lord's Prayer - 66 words.
+Archimedes' Principle - 67 words.
+10 Commandments - 179 words.
+Gettysburg Address - 286 words.
+Declaration of Independence - 1,300 words.
 
-The man walks faster, trying to hurry across the street, but the car changes lanes and is still coming at him.  So the guy turns around to go back, but the car changes lanes again and continues in his direction. 
+US Government regulations on the sale of cabbage -
 
-By now, the car is so close and the man so scared that he just freezes and stops in the middle of the road.
-
-The car gets really close, then swerves at the last possible moment and screeches to a halt right next him.  The driver rolls down the window.  The driver is a squirrel.
-
-The squirrel says to the man says, 'See, it's not as easy as it looks, is it?'
+26,911 words.
 
