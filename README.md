@@ -1,10 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Christmas Party
+Furrier
 
-A waitress at a restaurant that David worked at had a change of clothes stolen from the break room. To make matters worse, she'd planned on wearing them to the Christmas party.
+Sam and a beautiful woman walk into a very posh Beverly Hills furrier. 'Show the lady your finest mink!' the fellow exclaims. So the owner of the shop goes in back and comes out with an absolutely gorgeous full-length coat.
 
-As a brand-new employee, David knew none of this backstory, so you can imagine his surprise when the found a note on the employees' community board saying:
+As the lady tries it on, the furrier discreetly whispers to the man, 'Ah, sir, that particular fur goes for $65,000.' 'No problem! I'll write you a check!' 'Very good, sir,' says the shop owner. 'Today is Saturday. You may come by on Monday to pick it up, after your check has cleared.'
 
-'It has been two weeks since the Christmas party, and I still have not found my clothes.'
+So Sam and the woman leave. On Monday, the Morris returns. The store owner is outraged: 'How dare you show your face in here? There wasn't a single penny in your checking account!'
+
+'I just had to come by,' grinned Sam, 'to thank you for the most wonderful weekend of my life!'
 
