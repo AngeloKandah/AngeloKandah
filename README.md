@@ -1,17 +1,46 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-The Haunted Car
+Laws of Golf
 
-This story happened about a month ago in a little town in Louisiana, and sounds like an Alfred Hitchcock tale.
+The Laws Of Golf
 
-This guy is on the side of the road hitch hiking on a very dark night in the middle of a storm. The night passes slowly and no cars come by. The storm is so strong he can see hardly a few feet ahead of him. Suddenly he sees a car slowly looming, ghostlike, out of the gloom. It slowly creeps toward him and stops. Reflexively, the guy gets into the car and closes the door, then realizes that there is nobody behind the wheel. The car slowly starts moving again.
+LAW 1: No matter how bad your last shot was, the worst is yet to come. This law does not expire on the 18th hole, since it has the supernatural tendency to extend over the course of a tournament, a summer and, eventually, a lifetime.
 
-The guy is terrified, too scared to think of jumping out and running. The guy sees that the car is slowly approaching a sharp curve. The guy starts to pray, begging for his life, sure the ghost car will go off the road
-and he will plunge to his death when, just before the curve, a hand appears thru the window and turns the steering wheel, guiding the car safely
-around the bend.
+LAW 2: Your best round of golf will be followed almost immediately by your worst round ever. The probability of the latter increases with the number of people you tell about the former.
 
+LAW 3: Brand new golf balls are water-magnetic. Though this cannot be proven in the lab, it is a known fact that the more expensive the golf ball, the greater its attraction to water.
 
-Paralyzed with terror, the guy watches the hand reappear every time they reach a curve. Finally, the guy gathers his wits and leaps from the car, and runs to the nearest town. Wet and in shock, he goes to a bar and, voice quavering, orders two shots of tequila, and tells everybody about his horrible, supernatural experience. A silence envelops everybody when they realize the guy is apparently sane and not drunk.
-About half an hour later two guys walk into the same bar. One says to the other, 'Look Boudreaux, that's the idiot that rode in our car when we
-were pushing it.'
+LAW 4: Golf balls never bounce off of trees back into play. If one does, the tree is breaking a law of the universe and should be cut down.
+
+LAW 5: No matter what causes a golfer to muff a shot, all his playing partners must solemnly chant, 'You looked up,' or invoke the wrath of the universe.
+
+LAW 6: The higher a golfer's handicap, the more qualified he deems himself as an instructor.
+
+LAW 7: Every par-three hole in the world has a secret desire to humiliate golfers. The shorter the hole, the greater its desire.
+
+LAW 8: Topping a 3-iron is the most painful torture known to man.
+
+LAW 9: Palm trees eat golf balls.
+
+LAW 10: Sand is alive. If it isn't, how do you explain the way it works against you?
+
+LAW 11: Golf carts always run out of juice at the farthest point from the clubhouse.
+
+LAW 12: A golfer hitting into your group will always be bigger than anyone in your group. Likewise, a group you accidentally hit into will consist of a football player, a professional wrestler, a convicted murderer and an IRS agent - or some similar combination.
+
+LAW 13: All 3-woods are demon-possessed.
+
+LAW 14: Golf balls from the same, 'sleeve' tend to follow one another, particularly out of bounds or into the water (See Law three).
+
+LAW 15: A severe slice is a thing of awesome power and beauty.
+
+LAW 16, 'Nice lag' can usually be translated to, 'lousy putt.' Similarly, 'tough break' can usually be translated, 'way to miss an easy one, sucker.'
+
+LAW 17: The person you would most hate to lose to will always be the one who beats you.
+
+LAW 18: The last three holes of a round will automatically adjust your score to what it really should be.
+
+LAW 19: Golf should be given up at least twice per month.
+
+LAW 20: All vows taken on a golf course shall be valid only until the sunset.
 
