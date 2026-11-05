@@ -1,46 +1,40 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Laws of Golf
+New Wall Street Terminology Has Been Approved
 
-The Laws Of Golf
+NEW STOCK MARKET TERMS
 
-LAW 1: No matter how bad your last shot was, the worst is yet to come. This law does not expire on the 18th hole, since it has the supernatural tendency to extend over the course of a tournament, a summer and, eventually, a lifetime.
+CEO - Chief Embezzlement Officer.
 
-LAW 2: Your best round of golf will be followed almost immediately by your worst round ever. The probability of the latter increases with the number of people you tell about the former.
+CFO - Corporate Fraud Officer.
 
-LAW 3: Brand new golf balls are water-magnetic. Though this cannot be proven in the lab, it is a known fact that the more expensive the golf ball, the greater its attraction to water.
+BULL MARKET - A random market movement causing an investor to mistake himself for a financial genius.
 
-LAW 4: Golf balls never bounce off of trees back into play. If one does, the tree is breaking a law of the universe and should be cut down.
+BEAR MARKET - A 6 to 18 month period when the kids get no allowance, the wife gets no jewelry, and the husband gets no sex.
 
-LAW 5: No matter what causes a golfer to muff a shot, all his playing partners must solemnly chant, 'You looked up,' or invoke the wrath of the universe.
+VALUE INVESTING - The art of buying low and selling lower.
 
-LAW 6: The higher a golfer's handicap, the more qualified he deems himself as an instructor.
+P/E RATIO - The percentage of investors wetting their pants as the market keeps crashing.
 
-LAW 7: Every par-three hole in the world has a secret desire to humiliate golfers. The shorter the hole, the greater its desire.
+BROKER - What my broker has made me.
 
-LAW 8: Topping a 3-iron is the most painful torture known to man.
+STANDARD JOKE POOR - Your life in a nutshell.
 
-LAW 9: Palm trees eat golf balls.
+STOCK ANALYST - Idiot who just downgraded your stock.
 
-LAW 10: Sand is alive. If it isn't, how do you explain the way it works against you?
+STOCK SPLIT - When your ex-wife and her lawyer split your assets equally between themselves.
 
-LAW 11: Golf carts always run out of juice at the farthest point from the clubhouse.
+FINANCIAL PLANNER - A guy whose phone has been disconnected.
 
-LAW 12: A golfer hitting into your group will always be bigger than anyone in your group. Likewise, a group you accidentally hit into will consist of a football player, a professional wrestler, a convicted murderer and an IRS agent - or some similar combination.
+MARKET CORRECTION - The day after you buy stocks.
 
-LAW 13: All 3-woods are demon-possessed.
+CASH FLOW - The movement your money makes as it disappears down the toilet.
 
-LAW 14: Golf balls from the same, 'sleeve' tend to follow one another, particularly out of bounds or into the water (See Law three).
+YAHOO - What you yell after selling it to some poor sucker for $240 per share.
 
-LAW 15: A severe slice is a thing of awesome power and beauty.
+WINDOWS - What you jump out of when you're the sucker who bought Yahoo @ $240 per share.
 
-LAW 16, 'Nice lag' can usually be translated to, 'lousy putt.' Similarly, 'tough break' can usually be translated, 'way to miss an easy one, sucker.'
+INSTITUTIONAL INVESTOR - Past year investor who's now locked up in a nuthouse.
 
-LAW 17: The person you would most hate to lose to will always be the one who beats you.
-
-LAW 18: The last three holes of a round will automatically adjust your score to what it really should be.
-
-LAW 19: Golf should be given up at least twice per month.
-
-LAW 20: All vows taken on a golf course shall be valid only until the sunset.
+PROFIT - An archaic word no longer in use.
 
