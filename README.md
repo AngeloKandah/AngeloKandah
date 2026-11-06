@@ -1,40 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-New Wall Street Terminology Has Been Approved
+Old Standards
 
-NEW STOCK MARKET TERMS
-
-CEO - Chief Embezzlement Officer.
-
-CFO - Corporate Fraud Officer.
-
-BULL MARKET - A random market movement causing an investor to mistake himself for a financial genius.
-
-BEAR MARKET - A 6 to 18 month period when the kids get no allowance, the wife gets no jewelry, and the husband gets no sex.
-
-VALUE INVESTING - The art of buying low and selling lower.
-
-P/E RATIO - The percentage of investors wetting their pants as the market keeps crashing.
-
-BROKER - What my broker has made me.
-
-STANDARD JOKE POOR - Your life in a nutshell.
-
-STOCK ANALYST - Idiot who just downgraded your stock.
-
-STOCK SPLIT - When your ex-wife and her lawyer split your assets equally between themselves.
-
-FINANCIAL PLANNER - A guy whose phone has been disconnected.
-
-MARKET CORRECTION - The day after you buy stocks.
-
-CASH FLOW - The movement your money makes as it disappears down the toilet.
-
-YAHOO - What you yell after selling it to some poor sucker for $240 per share.
-
-WINDOWS - What you jump out of when you're the sucker who bought Yahoo @ $240 per share.
-
-INSTITUTIONAL INVESTOR - Past year investor who's now locked up in a nuthouse.
-
-PROFIT - An archaic word no longer in use.
+Recently a family court judge was interviewing a 15 yr. old boy, asking him which parent he wanted to live with, his mother or father?  The kid said he didn't want to live with either one -- that both of them beat him all the time.  The kid said he wanted to live with the Dallas Cowboys -- they never beat anybody!
 
