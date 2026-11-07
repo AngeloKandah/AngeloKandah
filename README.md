@@ -1,6 +1,8 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Old Standards
+House and Home
 
-Recently a family court judge was interviewing a 15 yr. old boy, asking him which parent he wanted to live with, his mother or father?  The kid said he didn't want to live with either one -- that both of them beat him all the time.  The kid said he wanted to live with the Dallas Cowboys -- they never beat anybody!
+After the fall in Garden of Eden, Adam was walking with his sons Cain and Abel.
+
+They passed by the ruins of the Garden of Eden. One of the boys asked, 'What's that?' Adam replied, 'Boys, that's where your mother ate us out of house and home.'
 
