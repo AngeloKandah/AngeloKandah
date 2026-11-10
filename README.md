@@ -1,40 +1,26 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-THE ADVENTURE BEGINS:
+Cra-Z Laws:Colorado
 
-THE ADVENTURE BEGINS:
-Two Irishmen walk into a pet shop in Dingle. They head
-to the bird section and Gerry says to Paddy, 'Dat's dem.'
-
-The owner comes over and asks if he can help them. Yeah, we'll take four of dem dere little budgies in dat cage up dere,' says Gerry.
-
-The owner puts the budgies in a paper bag. Paddy and Gerry pay for the birds, leave the shop and get into Gerry's truck to drive to the top of the Connor Pass.
-
-At the Connor Pass, Gerry looks down at the 1000' foot
-drop and says, 'Dis looks like a grand place.' He takes two birds out of the bag, puts them on his shoulders and jumps off the cliff.
-
-Paddy watches as Gerry falls all the way to the bottom,
-killing himself stone dead. Looking down at the remains of his best pal, Paddy shakes his head and says 'Fook dat. Dis budgie jumping is too fook'n dangerous for me!'
-
-THERE'S MORE
-Moments later, Seamus arrives up at Connor Pass. He's
-been to the pet shop too and walks up to the edge of the cliff carrying another paper bag in one hand and a shotgun in the other.
-
-'Hi, Paddy, Watch dis,' Seamus says. He takes a parrot
-from the bag and throws himself over the edge of the cliff. 
-Paddy watches as half way down, Seamus takes the gun and shoots the parrot.
-
-Seamus continues to plummet down and down until he hits the bottom and breaks every bone in his body.
-
-Paddy shakes his head and says, 'And I'm never trying dat
-parrotshooting either!'
-
-IT IS NOT OVER YET
-
-Paddy is just getting over the shock of losing two
-friends when Sean Og appears. He's also been to the pet shop and is carrying a paper bag out of which he pulls a chicken.
-
-Sean Og then hurls himself off the cliff and disappears down and down until he hits a rock and breaks his spine.
-
-Once more Paddy shakes his head. 'Fook dat, lads. First dere was Gerry with his budgie jumping, den Seamus parrotshooting . . . and now Sean Og and his fook'n hengliding!'
+Colorado
+â¢ Car dealers may not show cars on a Sunday. 
+â¢ Colorado law requires that wine be sold in containers of at least 24 ounces and spirits in containers at least a fifth of a gallon. But, at the same time, it also decrees that no alcohol beverage can be stored in hotel minibars in anything larger than miniature containers.
+â¢ Colorado Springs: It is permissible to wear a holstered six-gun within city limits, except on Sunday, Election Day, or holidays. 
+â¢ Crippe Creek: It is illegal to bring your horse or pack mule above the ground floor of any building. 
+â¢ Denver: The dog catcher must notify dogs of impounding by posting, for three consecutive days, a notice on a tree in the city park and along a public road running through said park; It is unlawful to lend your vacuum cleaner to your next-door neighbor; It is illegal to mistreat rats; You may not drive a black car on Sundays. 
+â¢ Durango: It is illegal to go in public dressed in clothes 'unbecoming' on one's sex. 
+â¢ Have you ever had the urge to rip the tag from a pillow or mattress, despite the warning of dire penalties? Well, it's perfectly legal now, if you live in Colorado. The Governor formalized the law by gleefully tearing a label from a pillow at his office. 'I've been worrying about the mattress inspector jumping through the window for years,' he said.
+â¢ In Colorado it's now legal to remove the furniture tags that say, 'Do Not Remove Under Penalty of Law.' 
+â¢ In Denver, Colorado it is illegal for Barber's to give massages to nude customers unless it is for instructional purposes. 
+â¢ In Denver, it is unlawful to lend your vacuum cleaner to your next door neighbor.
+â¢ It is against the law in Pueblo, Colorado, to raise or permit a dandelion to grow within the city limits.
+â¢ It is illegal for a woman wearing a red dress to be out on the streets after 7 PM.
+â¢ It is illegal for liquor stores to sell food or grocery stores to sell any alcohol except beer that is at most 3.2% alcohol. 
+â¢ It is illegal to ride a horse while under the influence.
+â¢ It is illegal to mistreat rats in Denver. 
+â¢ Logan County: It is illegal for a man to kiss a woman while she is asleep. 
+â¢ No liquor may be sold on Sundays or election days. 
+â¢ Pueblo: It is illegal to let a dandelion grow within the city limits. 
+â¢ Sterling: Cats may not run loose without having been fit with a taillight.
+â¢ Tags may be ripped off of pillows and mattresses.
 
