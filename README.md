@@ -1,66 +1,40 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Amazing Facts 15
+THE ADVENTURE BEGINS:
 
-110
-The largest bay in the world is Hudson Bay, Canada
-111
-The largest church in the world is Bascilica of St.Peter, Vatican City, Rome
-112
-The largest peninsula in the world is Arabia
-113
-The largest gulf in the world is Gulf of Mexico
-114
-The tallest statue in the world is the Motherland, Volgograd, Russia
-115
-The largest railway tunnel in the world is the Oshimzu Tunnel, Japan
-116
-The world's loneliest island is the Tristan da Cunha
-117
-The word 'Quiz' was coined by Jim Daly, Irishman
-118
-The original meaning of 'Quiz' was Trick
-119
-The busiest shopping centre of London is Oxford Street
-120
-The residence of the Queen in London is Buckingham Palace
-121
-Adolf Hitler was born in Austria
-122
-The country whose National Anthem has only music but no words is Bahrain
-123
-The largest cinema in the world is the Fox Theatre, Detroit, USA
-124
-The country where there are no cinema theatres is Saudi Arabia
-125
-The world's tallest office building is the Sears Tower, Chicago
-126
-In the year 1811, Paraguay became independent from Spain
-127
-The cross word puzzle was invented by Arthur Wynney
-128
-The city which was the capital of the ancient Persian Empire was Persepolis
-129
-WHO stands for World Health Organisation
-130
-WHO is located at Geneva
-131
-FAO stands for Food and Agriculture Organisation
-132
-FAO is located at Rome and London
-133
-UNIDO stands for United Nations Industrial Development Organisation
-134
-UNIDO is located at Vienna
-135
-WMO stands for World Meteorological Organisation
-136
-WMO is located at Geneva
-137
-International Civil Aviation Organisation is located at
-Montreal 
-138
-The Angel Falls is located in Venezuela
-139
-The Victoria Falls is located in Rhodesia
+THE ADVENTURE BEGINS:
+Two Irishmen walk into a pet shop in Dingle. They head
+to the bird section and Gerry says to Paddy, 'Dat's dem.'
+
+The owner comes over and asks if he can help them. Yeah, we'll take four of dem dere little budgies in dat cage up dere,' says Gerry.
+
+The owner puts the budgies in a paper bag. Paddy and Gerry pay for the birds, leave the shop and get into Gerry's truck to drive to the top of the Connor Pass.
+
+At the Connor Pass, Gerry looks down at the 1000' foot
+drop and says, 'Dis looks like a grand place.' He takes two birds out of the bag, puts them on his shoulders and jumps off the cliff.
+
+Paddy watches as Gerry falls all the way to the bottom,
+killing himself stone dead. Looking down at the remains of his best pal, Paddy shakes his head and says 'Fook dat. Dis budgie jumping is too fook'n dangerous for me!'
+
+THERE'S MORE
+Moments later, Seamus arrives up at Connor Pass. He's
+been to the pet shop too and walks up to the edge of the cliff carrying another paper bag in one hand and a shotgun in the other.
+
+'Hi, Paddy, Watch dis,' Seamus says. He takes a parrot
+from the bag and throws himself over the edge of the cliff. 
+Paddy watches as half way down, Seamus takes the gun and shoots the parrot.
+
+Seamus continues to plummet down and down until he hits the bottom and breaks every bone in his body.
+
+Paddy shakes his head and says, 'And I'm never trying dat
+parrotshooting either!'
+
+IT IS NOT OVER YET
+
+Paddy is just getting over the shock of losing two
+friends when Sean Og appears. He's also been to the pet shop and is carrying a paper bag out of which he pulls a chicken.
+
+Sean Og then hurls himself off the cliff and disappears down and down until he hits a rock and breaks his spine.
+
+Once more Paddy shakes his head. 'Fook dat, lads. First dere was Gerry with his budgie jumping, den Seamus parrotshooting . . . and now Sean Og and his fook'n hengliding!'
 
