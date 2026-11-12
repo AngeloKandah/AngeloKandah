@@ -1,12 +1,12 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Anthill Golfing
+Expensive Persian Rugs
 
-Once there was a golfer whose drive landed on an anthill. Rather than move the ball, he decided to hit it where it lay. He gave a mighty swing. Clouds of dirt and sand and ants exploded from the spot, everything but the golf ball. It sat in the same spot. 
+A lady walks into a shop that sells VERY expensive Persian rugs. She browses around, then spots the perfect rug and walks over to inspect it. As she bends to feel the texture of the rug, she farts loudly. Very embarrassed, she looks around nervously to see if anyone has noticed her little accident and hopes a sales person does not pop up right now. As she turns back, there, standing next to her is a salesman. 
 
-So he lined up and tried another shot. Clouds of dirt and sand and ants went flying again. The golf ball didn't even wiggle. 
+'Good day, madam. How may we help you today?'
 
-Two ants survived. One dazed ant said to the other, 'Whoa! What are we going to do?' 
+Very uncomfortably she asks, 'Sir, what is the price of this lovely rug?' 
 
-Said the other ant: 'I don't know about you, but I'm going to get on the ball.'
+He answers, 'Madam, if you farted just touching it, you are very likely to shit when you hear the price!'
 
