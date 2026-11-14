@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Laughs last
+In an Elevator
 
-'He who laughs last, thinks slowest.'
+A smart blonde, a leprachaun and a fairy were in an elevator together talking about something, but whatever they were talking about was not true because there is no such thing as a leprechaun or a fairy or a smart blonde.
 
