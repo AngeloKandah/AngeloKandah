@@ -1,12 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Expensive Persian Rugs
+Laughs last
 
-A lady walks into a shop that sells VERY expensive Persian rugs. She browses around, then spots the perfect rug and walks over to inspect it. As she bends to feel the texture of the rug, she farts loudly. Very embarrassed, she looks around nervously to see if anyone has noticed her little accident and hopes a sales person does not pop up right now. As she turns back, there, standing next to her is a salesman. 
-
-'Good day, madam. How may we help you today?'
-
-Very uncomfortably she asks, 'Sir, what is the price of this lovely rug?' 
-
-He answers, 'Madam, if you farted just touching it, you are very likely to shit when you hear the price!'
+'He who laughs last, thinks slowest.'
 
