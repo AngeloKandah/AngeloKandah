@@ -1,6 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-In an Elevator
+Mt. Rushmore
 
-A smart blonde, a leprachaun and a fairy were in an elevator together talking about something, but whatever they were talking about was not true because there is no such thing as a leprechaun or a fairy or a smart blonde.
+Did you know that the goverment finds Native American chiefs more important than presidents? The new head on Mt. Rushmore is at least twice the size of the others. It's the head of an Indian!
 
