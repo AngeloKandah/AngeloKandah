@@ -1,17 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Georgia Bulldog
+Canoe
 
-Two boys are playing football at this park in a small town in South Carolina when one of the boys is suddenly attacked by a crazed Rottweiler. Thinking
-quickly, the other boy takes a stick and shoves it under the dog's collar, twists it, and breaks the dog's neck, thus saving his friend.
-
-A sports reporter who was strolling by sees the incident and rushes over to interview the boy. He tells the boy he's going to write the story and says, 'I'll title it 'Young Tiger Fan Saves Friend From Vicious Animal.'' 'But I'm not a Tiger fan', the little hero replies. 'Sorry, since we're in South Carolina, I just assumed you were', says the reporter and
-he starts writing again.
-
-He asks, 'How does 'Gamecock Fan Rescues Friend From Horrific Attack' sound?'
-'I'm not a Gamecock fan either', the boy says.
-'Oh, I thought everyone in South Carolina was either for the Tigers or the Gamecocks. 'What team do you root for?', the reporter asks.
-
-'I'm just visiting my cousin, I'm a Georgia Bulldog fan', the boy replies, 'they're just the best!'
-The reporter smiles, starts a new sheet in his notebook and writes: 'Little Redneck Bastard From Georgia Kills Beloved Family Pet'.
+Once upon a time, there was a tribe of very hostile Indians who, upon catching a person on their land, would cut the person up and make a canoe out of them.  One day, three men were walking through the woods when they wandered upon the canoe-making Indian's land.  They were all caught and given one death wish.  The man from Italy said, 'I would like one last slice of pizza before I die.'  So he ate his pizza and was cut up and made into a canoe.  The man from America said, 'I would like one last hamburger before I die.'  So he ate his hamburger and was cut up and made a canoe.  The last man asked for a fork.  'What the hell - a fork??!!!  Why the hell do you want a fuckin fork???'  But they got him a fork, anyways.  The man took the fork and began stabbing himself with it, saying, 'YER NOT MAKIN A CANOE OUT OF ME!!!'
 
