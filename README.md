@@ -1,6 +1,22 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Canoe
+H-h-h-how C-c-ccan I H-h-help U-u?
 
-Once upon a time, there was a tribe of very hostile Indians who, upon catching a person on their land, would cut the person up and make a canoe out of them.  One day, three men were walking through the woods when they wandered upon the canoe-making Indian's land.  They were all caught and given one death wish.  The man from Italy said, 'I would like one last slice of pizza before I die.'  So he ate his pizza and was cut up and made into a canoe.  The man from America said, 'I would like one last hamburger before I die.'  So he ate his hamburger and was cut up and made a canoe.  The last man asked for a fork.  'What the hell - a fork??!!!  Why the hell do you want a fuckin fork???'  But they got him a fork, anyways.  The man took the fork and began stabbing himself with it, saying, 'YER NOT MAKIN A CANOE OUT OF ME!!!'
+A really huge muscular guy with a bad stutter goes to a counter in a department store and asks, 'W-w-w-where's the m-m-m-men's dep-p-p-partment?'
+
+The clerk behind the counter just looks at him and says nothing.
+
+The man repeats himself: 'W-w-w-where's the m-m-m-men's dep-p-p-partment?'
+
+Again, the clerk doesn't answer him.
+
+The guy asks several more times: 'W-w-w-where's the m-m-m-men's dep-p-p-partment?'
+
+And the clerk just seems to ignore him.
+
+Finally, the guy storms off in anger.
+
+The customer who was waiting in line behind the guy asks the clerk, 'Why wouldn't you answer that guy's question?'
+
+The clerk answers, 'D-d-d-do you th-th-th-think I w-w-w-want to get b-b-b-beat up?!!'
 
