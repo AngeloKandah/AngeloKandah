@@ -1,22 +1,6 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-H-h-h-how C-c-ccan I H-h-help U-u?
+Whats a Joke Subscription?
 
-A really huge muscular guy with a bad stutter goes to a counter in a department store and asks, 'W-w-w-where's the m-m-m-men's dep-p-p-partment?'
-
-The clerk behind the counter just looks at him and says nothing.
-
-The man repeats himself: 'W-w-w-where's the m-m-m-men's dep-p-p-partment?'
-
-Again, the clerk doesn't answer him.
-
-The guy asks several more times: 'W-w-w-where's the m-m-m-men's dep-p-p-partment?'
-
-And the clerk just seems to ignore him.
-
-Finally, the guy storms off in anger.
-
-The customer who was waiting in line behind the guy asks the clerk, 'Why wouldn't you answer that guy's question?'
-
-The clerk answers, 'D-d-d-do you th-th-th-think I w-w-w-want to get b-b-b-beat up?!!'
+Not to be confused with the Daily Joke Newsletter, a subscription to a joke means that it will appear on your 'View Subscriptions' page. This allows you to keep up-to-date on the conversation/comments of your favorite jokes. To subscribe, click the checkbox at the bottom of the comment box on the joke page. You can always unsubscribe at any time.
 
