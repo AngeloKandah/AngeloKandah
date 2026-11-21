@@ -1,6 +1,10 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Whats a Joke Subscription?
+Geriatic Humor
 
-Not to be confused with the Daily Joke Newsletter, a subscription to a joke means that it will appear on your 'View Subscriptions' page. This allows you to keep up-to-date on the conversation/comments of your favorite jokes. To subscribe, click the checkbox at the bottom of the comment box on the joke page. You can always unsubscribe at any time.
+Two elderly ladies had been friends for many decades. Over the years they had shared all kinds of activities and adventures. Lately, their activities had been limited to meeting a few times a week to play cards.
+ 
+One day they were playing cards when one looked at the other and said, 'Now don't get mad at me.....I know we've been friends for a long time, but I just can't think of your name! I've thought and thought, but I can't remember it. Please tell me what your name is.' Her friend glared at her. For at least three minutes she just stared and glared at her.
+ 
+Finally she said, 'How soon do you need to know?'
 
