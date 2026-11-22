@@ -1,10 +1,27 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Geriatic Humor
+Finkelstein and Jesus
 
-Two elderly ladies had been friends for many decades. Over the years they had shared all kinds of activities and adventures. Lately, their activities had been limited to meeting a few times a week to play cards.
- 
-One day they were playing cards when one looked at the other and said, 'Now don't get mad at me.....I know we've been friends for a long time, but I just can't think of your name! I've thought and thought, but I can't remember it. Please tell me what your name is.' Her friend glared at her. For at least three minutes she just stared and glared at her.
- 
-Finally she said, 'How soon do you need to know?'
+Jesus was wandering around Jerusalem when He decided that He really needed a new robe. After looking around for a while, He saw a sign for Finkelstein, the Tailor. So, He went in and made the necessary arrangements to have Finkelstein prepare a new robe for Him. A few days later, when the robe was finished, Jesus tried it on and it was a perfect fit! 
+
+He asked how much He owed, but Finkelstein brushed him off: 'No, no, no, for the Son of God? There's no charge! However, may I ask for a small favor?' Whenever you give a sermon, perhaps you could just mention that your nice new robe was made by Finkelstein, the Tailor.' 
+
+Jesus readily agreed and as promised, extolled the virtues of His Finkelstein robe whenever He spoke to the masses. 
+
+A few months later, while Jesus was again walking through Jerusalem, He happened to walk past the Finkelstein shop and noted a huge line of people waiting for Finkelstein robes. 
+
+He pushed his way through the crowd to speak to him and as soon as Finkelstein spotted Him he said: 'Jesus, Jesus, look what you've done for my business! Would you consider a partnership?' 
+
+'Certainly,' replied Jesus. ' 'Jesus JOKE Finkelstein' it is.' 
+
+'Oh, no, no,' said Finkelstein. ' 'Finkelstein JOKE Jesus'. After all, I am the craftsman.' 
+
+The two of them debated this for some time. Their discussion was long and spirited but ultimately fruitful, and they finally came up with a mutually acceptable compromise. 
+
+A few days later, the new sign went up over Finkelstein's shop. 
+
+And of course, this shop is still here to this day. Can you guess what it is? Now this may hurt a bit...
+Don't say you weren't warned...
+
+LORD JOKE TAYLOR
 
