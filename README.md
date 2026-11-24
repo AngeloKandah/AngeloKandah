@@ -1,27 +1,14 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Finkelstein and Jesus
+Dumb People
 
-Jesus was wandering around Jerusalem when He decided that He really needed a new robe. After looking around for a while, He saw a sign for Finkelstein, the Tailor. So, He went in and made the necessary arrangements to have Finkelstein prepare a new robe for Him. A few days later, when the robe was finished, Jesus tried it on and it was a perfect fit! 
+A group of drug dealers from Mexico tried transporting 6,240 pounds of marijuana to America, by hiding it in a tanker truck disguised as a gasoline truck. They were clever, but not bright. They misspelled the name of the gas station on the side of the truck.
 
-He asked how much He owed, but Finkelstein brushed him off: 'No, no, no, for the Son of God? There's no charge! However, may I ask for a small favor?' Whenever you give a sermon, perhaps you could just mention that your nice new robe was made by Finkelstein, the Tailor.' 
+A woman was arrested in Lake City, Florida for robbery of a motel. She was armed with only an electric chainsaw that was not plugged in.
 
-Jesus readily agreed and as promised, extolled the virtues of His Finkelstein robe whenever He spoke to the masses. 
+Police in Idaho were amused when they arrived to write up a burglary, and the homeowner told them that the thief had taken his VCR, his bong, and his stash of marijuana. The police ticketed the guy for possession of drug paraphernalia.
 
-A few months later, while Jesus was again walking through Jerusalem, He happened to walk past the Finkelstein shop and noted a huge line of people waiting for Finkelstein robes. 
+A girl went to a Taco Bell and asked for a taco with minimal lettuce. The guy behind the cash register said, 'Sorry, we only have iceberg lettuce.'
 
-He pushed his way through the crowd to speak to him and as soon as Finkelstein spotted Him he said: 'Jesus, Jesus, look what you've done for my business! Would you consider a partnership?' 
-
-'Certainly,' replied Jesus. ' 'Jesus JOKE Finkelstein' it is.' 
-
-'Oh, no, no,' said Finkelstein. ' 'Finkelstein JOKE Jesus'. After all, I am the craftsman.' 
-
-The two of them debated this for some time. Their discussion was long and spirited but ultimately fruitful, and they finally came up with a mutually acceptable compromise. 
-
-A few days later, the new sign went up over Finkelstein's shop. 
-
-And of course, this shop is still here to this day. Can you guess what it is? Now this may hurt a bit...
-Don't say you weren't warned...
-
-LORD JOKE TAYLOR
+A student in Belle, West Virginia was suspended for 3 days for giving a friend a cough drop. The principal reiterated the school's 'Zero tolerance policy.'
 
