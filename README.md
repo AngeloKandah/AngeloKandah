@@ -1,14 +1,60 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Dumb People
+More Of Life's Unanswered Questions
 
-A group of drug dealers from Mexico tried transporting 6,240 pounds of marijuana to America, by hiding it in a tanker truck disguised as a gasoline truck. They were clever, but not bright. They misspelled the name of the gas station on the side of the truck.
+Why is it called a soap opera when nobody sings?
 
-A woman was arrested in Lake City, Florida for robbery of a motel. She was armed with only an electric chainsaw that was not plugged in.
+Can a unborn baby fart or burp?
 
-Police in Idaho were amused when they arrived to write up a burglary, and the homeowner told them that the thief had taken his VCR, his bong, and his stash of marijuana. The police ticketed the guy for possession of drug paraphernalia.
+If a General is a higher ranking officer than a Major, then why is a major illness worse than a general illness?
 
-A girl went to a Taco Bell and asked for a taco with minimal lettuce. The guy behind the cash register said, 'Sorry, we only have iceberg lettuce.'
+Why don't they make Root Beer flavored ice cream? Wouldn't it be better than root beer floats?
 
-A student in Belle, West Virginia was suspended for 3 days for giving a friend a cough drop. The principal reiterated the school's 'Zero tolerance policy.'
+What is the point in saying 'may I ask' and then follow it up with a question?   
+
+Is it possible to be allergic to water?
+ 
+When an atheist swears on a Bible before they testify in court, do they have to tell the whole truth and nothing but the truth since they don't believe in God?
+
+If a pack of gum says that each piece is 10 calories, is that amount just chewing the gum, or also for swallowing it? 
+
+Why does the Easter bunny carry eggs? Rabbits don't lay eggs.
+
+How come only your fingers and toes get wrinkly in the shower and nothing else does?
+
+Isn't it weird that all year round your parents tell you not to play with fire, but on Independence Day they hand you a package of explosives, a lighter, and say have fun?
+
+How come lotion is colored, but when you put it on, it doesn't turn your skin that color?
+
+Doesn't a lightning rod on top of church show a lack of faith?
+
+Are there pink lemons that make pink lemonade?
+
+Why do we say 'heads up' when we actually duck?
+ 
+What's a question with no answer called?
+
+How do 'do not walk on grass' signs get there?
+
+When a store has double doors why do they only let you use one of them?
+
+If there was a crumb on the table and you cut it in half, would you have two crumbs or two halves of a crumb?
+
+What was Captian Hook's name before he had a hook for a hand?
+
+Can a fire truck park in the fire lane?
+
+Who was the first person to look at a cow and say, 'I think I'll squeeze these dangly things here and drink what comes out'?
+
+If electricity comes from electrons, does morality come from morons?
+
+Can you breathe out of your nose and mouth at the same time?
+
+'Cute as a button'. Is that supposed to be a compliment? Since when are buttons cute?
+
+Why are people so scared of mice, yet we all love Mickey Mouse?
+
+Why can't you get a tan on your palms?
+
+And Why are people allowed to put naked statues outside but why can't we run outside naked?
 
