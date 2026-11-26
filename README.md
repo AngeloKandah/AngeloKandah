@@ -1,60 +1,29 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-More Of Life's Unanswered Questions
+Letter to Bill Gates
 
-Why is it called a soap opera when nobody sings?
+Blond's Letter to Bill Gates
 
-Can a unborn baby fart or burp?
+Dear Mr. Bill Gates,
 
-If a General is a higher ranking officer than a Major, then why is a major illness worse than a general illness?
 
-Why don't they make Root Beer flavored ice cream? Wouldn't it be better than root beer floats?
+This letter is from Banta Singh from Punjab. We have bought a computer for our home and we found problems, which I want to bring to your notice.
 
-What is the point in saying 'may I ask' and then follow it up with a question?   
+1. After connecting to internet we planned to open e-mail account and whenever we fill the form in Hotmail in the password column, only ****** appears, but in the rest of the fields whatever we typed appears, but we face this problem only in password field. We checked with hardware vendor Santa Singh and he said that there is no problem in keyboard.  Because of this we open the e-mail account with password *****. I request you to check this as we ourselves do not know what the password is.
 
-Is it possible to be allergic to water?
- 
-When an atheist swears on a Bible before they testify in court, do they have to tell the whole truth and nothing but the truth since they don't believe in God?
+2. We are unable to enter anything after we click the 'shut down' button.
 
-If a pack of gum says that each piece is 10 calories, is that amount just chewing the gum, or also for swallowing it? 
+3. There is a button 'start' but there is no 'stop' button. We request you to check this.
 
-Why does the Easter bunny carry eggs? Rabbits don't lay eggs.
+4. We find there is 'Run' in the menu. One of my friends clicked 'run' has ran upto Amritsar! So, we request you to change that to 'sit', so that we can click that while sitting.
 
-How come only your fingers and toes get wrinkly in the shower and nothing else does?
+5. One doubt is that any 're-scooter' available in system? As I find only 're-cycle', but I own a scooter at my home.
 
-Isn't it weird that all year round your parents tell you not to play with fire, but on Independence Day they hand you a package of explosives, a lighter, and say have fun?
+6. There is 'Find' button but it is not working properly. My wife lost the door key and we tried a lot for tracing the key with this ' find', but we were unable to trace it. Is it a bug??
 
-How come lotion is colored, but when you put it on, it doesn't turn your skin that color?
+7. Every night I can't sleep as I have to protect my 'mouse' from CAT, so, I suggest you provide one DOG to kill that cat.
 
-Doesn't a lightning rod on top of church show a lack of faith?
+8. Please confirm when you are going to give me my money for winning 'HEARTS' (playing cards in games) and when are you are coming to my home to collect your money.
 
-Are there pink lemons that make pink lemonade?
-
-Why do we say 'heads up' when we actually duck?
- 
-What's a question with no answer called?
-
-How do 'do not walk on grass' signs get there?
-
-When a store has double doors why do they only let you use one of them?
-
-If there was a crumb on the table and you cut it in half, would you have two crumbs or two halves of a crumb?
-
-What was Captian Hook's name before he had a hook for a hand?
-
-Can a fire truck park in the fire lane?
-
-Who was the first person to look at a cow and say, 'I think I'll squeeze these dangly things here and drink what comes out'?
-
-If electricity comes from electrons, does morality come from morons?
-
-Can you breathe out of your nose and mouth at the same time?
-
-'Cute as a button'. Is that supposed to be a compliment? Since when are buttons cute?
-
-Why are people so scared of mice, yet we all love Mickey Mouse?
-
-Why can't you get a tan on your palms?
-
-And Why are people allowed to put naked statues outside but why can't we run outside naked?
+9. My child learnen how to use, 'Microsoft word' now he wants to learn 'Microsoft sentence', so when will you provide that?
 
