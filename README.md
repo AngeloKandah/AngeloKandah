@@ -1,14 +1,25 @@
 Disclaimer: I do not condone these jokes, they are from a collection of jokes I found.
 
-Yo da lay he
+Fortification
 
-Knock Knock!
+Knock,knock....
 
 Who's there?
 
-Yo da lay he.
+Fortification.
 
-Yo da lay he who?
+Fortification who?
 
-I didn't know you could yodel!
+Fortification, we're going to Miami.
+---------------------------------------------
+Knock,knock....
+
+Who's there?
+
+Carl.
+
+Carl who?
+
+Carl get you there faster than a bike.
+-----------------------------------------------
 
